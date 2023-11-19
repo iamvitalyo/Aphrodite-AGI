@@ -180,4 +180,6 @@ Need to check this information but i will write: statistics of child death on Af
 and its only Africa, and what about adults, so woman hurry up.
 "o" like 5 is balance, its mean for woman will be not hard to make this AI, but also not easy.
 
+To generate infinite shapes from one shape we can use fractal geometry.
+
 Good luck, and dont forget to click "Star" button!
