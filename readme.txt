@@ -137,7 +137,6 @@ I see square like this a + b + c + e = 4
 Human + Task = Done Task == Human AI + Task = Done Task == Pentagram AI + Task = Done Task
 Pentagram + "2 + 2" = 4
 Pentagram = 4 - 2 - 2 = 0
-1 + 2 + 3 + 4 + 5 = 5
 
 If make big circle around earth, gravity will choose for him balanced position, circle will divide earth on two, on true and false.
 False i think its down by equator, on false part is hard to survive, this part not for life.  
