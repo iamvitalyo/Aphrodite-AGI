@@ -8,6 +8,8 @@ To defeat all evil we need one bullet, one shot, this project is one silver bull
 
 Not all in this project seriously, many of code and words it just experiment, its just draft.
 
+Pentagram based on 5 sticks, stick = 2, so we can told that we are binary like our computers.
+
 Project must be simple like “o” and Pentagram symbols.
 
 Imagine that "o" is adapter, then he will do only balanced queries, queries of love.
