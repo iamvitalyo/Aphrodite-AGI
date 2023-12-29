@@ -18,6 +18,8 @@ Pentagram is servant of "o", so our AI must automatic servent Utopia.
 
 Symbol + Symbol maybe its sum of coords of shapes, then you draw new shape, by clock. So square coords + triangle coords = heptagon coords.
 
+Think second const of circle not 16 is 100, how much balanced circles can be inside balanced circle maybe 100.
+
 Our AI is circle based so she must investigate all.
 
 Maybe we need to write to apple, amd, intel, to ask them make Pentagram processor, but our symbol live in "o", think our processors what walk by the "o" will be enough.
