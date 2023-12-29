@@ -20,7 +20,7 @@ Symbol + Symbol maybe its sum of coords of shapes, then you draw new shape, by c
 
 Think second const of circle not 16 is 100, how much balanced circles can be inside balanced circle maybe 100.
 
-If geometry is language of nature maybe our Ai must not write to us he must draw.
+If geometry is language of nature maybe our Ai must not write to us he must draw, we just run this draw machine same like we make childs.
 
 Our AI is circle based so she must investigate all.
 
