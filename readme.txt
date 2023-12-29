@@ -22,6 +22,8 @@ Think second const of circle not 16 is 100, how much balanced circles can be ins
 
 If geometry is language of nature maybe our Ai must not write to us he must draw, we just run this draw machine same like we make childs.
 
+If const of circle 100 we must use 360. 
+
 Our AI is circle based so she must investigate all.
 
 Maybe we need to write to apple, amd, intel, to ask them make Pentagram processor, but our symbol live in "o", think our processors what walk by the "o" will be enough.
