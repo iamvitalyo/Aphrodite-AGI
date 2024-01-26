@@ -170,6 +170,8 @@ What if everything is recursive and in the smallest particle of matter we will s
 
 "God love 3" and 3 is true => this or that or this and that.
 
+3+3*2=12 this is true.
+
 Always need to find balance, maybe for this work we need woman with age 50 and more years, before 50 by "o" its past.
 
 Pentagram is symbol of mind and symbol of truth, maybe we need a site where we vote for the truth, where we can rate innformation from 0 to 5,
