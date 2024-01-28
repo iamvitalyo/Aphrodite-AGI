@@ -172,6 +172,11 @@ What if everything is recursive and in the smallest particle of matter we will s
 
 3+3*2=12 this is true.
 
+pentagram is 123 => 12345 => 12 => 1234 => 1 
+3 = bird
+2 = snake
+....
+
 if o have constant 100 then 2 have 2 balanced symbols 3 have 3 in result o have 5050 balanced symbols, if teach them all we will be know all about nature. 
 
 Always need to find balance, maybe for this work we need woman with age 50 and more years, before 50 by "o" its past.
