@@ -177,6 +177,8 @@ pentagram is 123 => 12345 => 12 => 1234 => 1
 2 = snake
 ....
 
+pentagram from sticks, so logical stick method of conversation with ring draw ccircle with 100 const and if you told 1 draw to reverse of 1 to 50 if 3 ...
+
 if o have constant 100 then 2 have 2 balanced symbols 3 have 3 in result o have 5050 balanced symbols, if teach them all we will be know all about nature. 
 
 Always need to find balance, maybe for this work we need woman with age 50 and more years, before 50 by "o" its past.
