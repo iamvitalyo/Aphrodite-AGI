@@ -177,6 +177,8 @@ pentagram is 123 => 12345 => 12 => 1234 => 1
 2 = snake
 ....
 
+if circle is allposibility then why we can not make sins becouse o also balanced 
+
 -1 o 1 then yes o no => result of balance is o and o is symbol of love then result is yes, positive thinking of o.
 
 if hearth in human is left so why left is false and right is true, you can told that sun walks by cclock from left to righ but sun with each second is die, so we forever we pentogram and walks from right to left sun walks from left to right becouse she not forever
