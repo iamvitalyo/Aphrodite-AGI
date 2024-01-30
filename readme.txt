@@ -179,6 +179,11 @@ pentagram is 123 => 12345 => 12 => 1234 => 1
 
 need to focus on dot becouse from dot all start like our symbols, after 1 is dot to 2 stick then 3 triangel.
 
+if look on pentagram and o enter maybe in pentagram 3 head is balanced position, so from 3 to 5 => 2 => 4 => 1 
+is cycle of pentogram, and we have dot also drop if drop fall in balannced materia water she make o
+also if we draw drop in circle env of ccircle have rule balance so drop will be dot
+on this we can told that our pentogram thinking walk from 3 to 1 from circle to dot  
+
 pentagram from sticks, so logical stick method of conversation with ring draw ccircle with 100 const and if you told 1 draw to reverse of 1 to 50 if 3 ... 
 if in o 1 is reverse of 50 then our math mistaked and 1 o 50 == 1 = 50, and o told that we can make mistake on 50% and this is 50% 
 
