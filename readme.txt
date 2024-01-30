@@ -183,6 +183,8 @@ if hearth in human is left so why left is false and right is true, you can told 
 
 dot is split water to circle status so dot is divide symbols then maybe circle is multiplication, dot 1 make symbol of all so dot divide something to all.  
 
+revert of ccirccle unjustly cross, this cross not infinity, so death exists but death not forever, if to try draw death forever symbbool we can draw crooss in ciircle what will be mean from cross to circle, like triangel in circcle ffrom triangel to circle.
+
 teory off planet dance if Venus and Earth dance and draw pentogram maybe they told that on Earth must be humans and env for them
 if destroy Venus we will not survive. And maybe we also can write to nature somethinng for example in circle give me a water... and nature will give after o loop after one day maybe or after 100 days off after one year. And o balance told that lannguage of nature something between just symbbols and programing code.
 
