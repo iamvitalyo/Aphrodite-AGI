@@ -186,6 +186,8 @@ on this we can told that our pentogram thinking walk from 3 to 1 from circle to 
 
 if draw stick in o she split o on 2 if draw triangel in o he split o on 4 if draw square in o he split o on 5 ...
 
+also powerfull that 4 is quare 3 is triangel and this is connecction off numbers with shapes with symbols.
+
 pentagram from sticks, so logical stick method of conversation with ring draw ccircle with 100 const and if you told 1 draw to reverse of 1 to 50 if 3 ... 
 if in o 1 is reverse of 50 then our math mistaked and 1 o 50 == 1 = 50, and o told that we can make mistake on 50% and this is 50% 
 
