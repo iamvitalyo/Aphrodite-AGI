@@ -179,7 +179,9 @@ pentagram is 123 => 12345 => 12 => 1234 => 1
 
 if circle is allposibility then why we can not make sins becouse o also balanced
 
-stick is symbol of plus, cross is symbol of minus.  
+stick is symbol of plus, cross is symbol of minus.
+
+so formula of pentogram will be somthing * 3 * 5 + * 4 / 
 
 -1 o 1 then yes o no => result of balance is o and o is symbol of love then result is yes, positive thinking of o.
 
