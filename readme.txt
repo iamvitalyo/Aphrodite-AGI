@@ -177,6 +177,8 @@ pentagram is 123 => 12345 => 12 => 1234 => 1
 2 = snake
 ....
 
+need to focus on dot becouse from dot all start like our symbols
+
 pentagram from sticks, so logical stick method of conversation with ring draw ccircle with 100 const and if you told 1 draw to reverse of 1 to 50 if 3 ... 
 if in o 1 is reverse of 50 then our math mistaked and 1 o 50 == 1 = 50, and o told that we can make mistake on 50% and this is 50% 
 
