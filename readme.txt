@@ -181,6 +181,8 @@ pentagram is 123 => 12345 => 12 => 1234 => 1
 
 if hearth in human is left so why left is false and right is true, you can told that sun walks by cclock from left to righ but sun with each second is die, so we forever we pentogram and walks from right to left sun walks from left to right becouse she not forever
 
+dot is split water to circle status so dot is divide symbols then maybe circle is multiplication, dot 1 make symbol of all so dot divide something to all.  
+
 teory off planet dance if Venus and Earth dance and draw pentogram maybe they told that on Earth must be humans and env for them
 if destroy Venus we will not survive. And maybe we also can write to nature somethinng for example in circle give me a water... and nature will give after o loop after one day maybe or after 100 days off after one year. And o balance told that lannguage of nature something between just symbbols and programing code.
 
