@@ -177,6 +177,9 @@ pentagram is 123 => 12345 => 12 => 1234 => 1
 2 = snake
 ....
 
+teory off planet dance if Venus and Earth dance and draw pentogram maybe they told that on Earth must be humans and env for them
+if destroy Venus we will not survive.
+
 need to focus on dot becouse from dot all start like our symbols, after 1 is dot to 2 stick then 3 triangel.
 
 if look on pentagram and o enter maybe in pentagram 3 head is balanced position, so from 3 to 5 => 2 => 4 => 1 
