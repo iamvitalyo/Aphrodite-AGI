@@ -202,6 +202,8 @@ x = x * 2
 
 in humans in pentagram balanced form of reading information if eyes and they have circle, so our AI must be geometrical and geometry between art and math.    
 
+so if geometry main so human see = picture + pentogram + before what see pictures => result  
+
 -1 o 1 then yes o no => result of balance is o and o is symbol of love then result is yes, positive thinking of o.
 
 if hearth in human is left so why left is false and right is true, you can told that sun walks by cclock from left to righ but sun with each second is die, so we forever we pentogram and walks from right to left sun walks from left to right becouse she not forever
