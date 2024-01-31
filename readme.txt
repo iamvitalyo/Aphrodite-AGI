@@ -61,7 +61,7 @@ I and we need woman help, becouse:
 Sorry if something wrong, i repeat the woman by 5 is brain, i am not woman, so i can do mistake.
 My email: iamvitalyo@gmail.com   
 And if you see on this project or project like this donate button please donate, if you can work please work.
-If you have any idea please write on email, or create "Pull request", or write in social network using tags together #ai #aphrodite #5 #o #woman 
+If you have any idea please write on email, or create "Pull request", or write in social network using tags together #ai #aphrodite #5 #o #woman #pentagram
 Press "Watch" button to subscribe and watch the progress.
 
 To investigate "o" we must be "o", what we know:
