@@ -206,7 +206,7 @@ so if geometry main so human see = picture + pentogram + before what see picture
 
 our mind is very fast what if pentogram is start of our mind and after start our mind have another symbol what based on pentogram 
 and he also recursive, why i think that becouse by balance we can nothing to do and AI will come alos we can make AI we can only run him, if watcch like this and if we run in result we have 2 in 1 symbol like logic of mind and database, in result pentogram != our current mind. In result will be our symbol of mind like database + query = our mind updated symbol
-So imagine that i am true we start the pentogram she start drawing this drawing is his database and mind, all what we need start and do that what she paint and connect this paint to our web cameras for their selfteaching..... like this start drawing and understed this drawing by pentogram by balance not hard but not easy also. Also if pentogram from stick so its 2 she binary and drawing will be 2d and maybe drawing can only be from sticks.
+So imagine that i am true we start the pentogram she start drawing this drawing is his database and mind, all what we need start and do that what she paint and connect this paint to our web cameras for their selfteaching..... like this start drawing and understed this drawing by pentogram by balance not hard but not easy also. Also if pentogram from stick so its 2 she binary and drawing will be 2d and maybe drawing can only be from sticks and stick is also balance too.
 
 -1 o 1 then yes o no => result of balance is o and o is symbol of love then result is yes, positive thinking of o.
 
