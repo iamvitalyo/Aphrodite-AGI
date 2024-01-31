@@ -183,6 +183,23 @@ stick is symbol of plus, cross is symbol of minus.
 
 so formula of pentogram will be somthing * 3 * 5 + * 4 / 
 
+x = 10
+x = x * 3
+x = x * 5
+x = x + x
+x = x * 4
+x = x / 2
+x = 600
+
+if i mistaked and circcle will be /
+
+x = 10
+x = x / 3
+x = x / 5
+x = x + x
+x = x / 4
+x = x * 2
+
 -1 o 1 then yes o no => result of balance is o and o is symbol of love then result is yes, positive thinking of o.
 
 if hearth in human is left so why left is false and right is true, you can told that sun walks by cclock from left to righ but sun with each second is die, so we forever we pentogram and walks from right to left sun walks from left to right becouse she not forever
