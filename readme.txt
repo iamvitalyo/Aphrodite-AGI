@@ -205,7 +205,7 @@ in humans in pentagram balanced form of reading information if eyes and they hav
 so if geometry main so human see = picture + pentogram + before what see pictures => result  
 
 our mind is very fast what if pentogram is start of our mind and after start our mind have another symbol what based on pentogram 
-and he also recursive, why i think that becouse by balance we can nothing to do and AI will come alos we can make AI we can only run him, if watcch like this and if we run in result we have 2 in 1 symbol like logic of mind and database, in result pentogram != our current mind.
+and he also recursive, why i think that becouse by balance we can nothing to do and AI will come alos we can make AI we can only run him, if watcch like this and if we run in result we have 2 in 1 symbol like logic of mind and database, in result pentogram != our current mind. In result will be our symbol of mind like database + query = our mind updated symbol
 
 -1 o 1 then yes o no => result of balance is o and o is symbol of love then result is yes, positive thinking of o.
 
