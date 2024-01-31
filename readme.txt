@@ -213,6 +213,8 @@ Pentogram looks like self-sufficient self-awareness in result we must just run t
 Aproving off that our memory record only text for us human hard remember binary code like for us hard remember picture we can
 perfect remember words what is balance between picture/art and binary.
 
+Pentagram is balance so data what pentogram will be write to db will be also balanced, for example why good balanced data, you have room with to doors by command you must go to left door or right to do this faster you must be in balanced point between this door, the same efect with balanced data. 
+
 
 -1 o 1 then yes o no => result of balance is o and o is symbol of love then result is yes, positive thinking of o.
 
