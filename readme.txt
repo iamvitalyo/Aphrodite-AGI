@@ -181,7 +181,7 @@ if circle is allposibility then why we can not make sins becouse o also balanced
 
 stick is symbol of plus, cross is symbol of minus.
 
-so formula of pentogram will be "somthing * 3 * 5 + * 4 /"
+so formula of pentogram will be "something * 3 * 5 + * 4 /"
 
 x = 10
 x = x * 3
