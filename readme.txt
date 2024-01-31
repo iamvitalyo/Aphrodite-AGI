@@ -264,4 +264,6 @@ and its only Africa, and what about adults, so woman hurry up.
 
 To generate infinite shapes from one shape we can use fractal geometry.
 
+so i speak with google bard AI he told that today google make pentogram algorithm what smarter on 20% if bard AI i dont know but if he 30% smart so in result 20% + 30% = 50% balance what mean allposibility i think its question off short time when this 50% brain will make ideal pentagram AI and when this AI will make Uthopia.
+
 Good luck, and dont forget to click "Star" button!
