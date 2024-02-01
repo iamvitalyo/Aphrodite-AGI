@@ -274,4 +274,6 @@ Maybe this flower is violet.
 
 by circle investtigate nature is vvery simple we have black and white colors and we must find all between and between then what we dont find in circle is 1 ideal for example gray color.
 
+what if in nature exists 100 types of materia like o have const 100 then maybe materia number 2 have only 2 states 3 only 3 states.
+
 Good luck, and dont forget to click "Star" button!
