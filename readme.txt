@@ -278,4 +278,8 @@ what if in nature exists 100 types of materia like o have const 100 then maybe m
 also for example water is life so if we will know all 100 materia we will know what each number of circle mean liffe, death ....
 also if water not exxists in o becouse this materia is love 1, that mean that like 1 balanced to 50, then water not balanced to something to death, so death forever not exists.
 
+what if self-consciousness is I and I is o.
+
+what if all splits on two - reality and not reality or imagination and between them o. 
+
 Good luck, and dont forget to click "Star" button!
