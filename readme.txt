@@ -272,4 +272,6 @@ teory of love and 1, 1 make o if o have const 100 then 1 also dot symbol of mate
 If this ideal 1 drug is flower what draw Venus and Earth when dance, maybe need to smoke this flower becouse pentagram is also fire.
 Maybe this flower is violet.
 
+by circle investtigate nature is vvery simple we have black and white colors and we must find all between and between then what we dont find in circle is 1 ideal for example gray color.
+
 Good luck, and dont forget to click "Star" button!
