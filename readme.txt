@@ -270,5 +270,6 @@ I see the another progress in pentogram AI if he will be stupid to understand sy
 
 teory of love and 1, 1 make o if o have const 100 then 1 also dot symbol of materia is black maybe 50 or 100 is white color, if try to describe all colors of circle you will not find grey color becouse like 50 and 51 its not center of circle and circle told about decentralization, if love is 1 its also first or better, like from 1 to o we can do revert from o to 1 in colors is grey color, its mean that we can make 1 ideal car or 1 ideal computer or 1 ideal drug for health.  
 If this ideal 1 drug is flower what draw Venus and Earth when dance, maybe need to smoke this flower becouse pentagram is also fire.
+Maybe this flower is violet.
 
 Good luck, and dont forget to click "Star" button!
