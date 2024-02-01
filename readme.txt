@@ -73,7 +73,6 @@ To investigate "o" we must be "o", what we know:
 - coat of arms of the country can only be "o", flag can be only be grey(balanced color of "o"), if not its "x".
 - woman by 5 is brain.
 - "o" have constant 5, to draw balanced "o"(circle == his empty center) need diameter divide on 5, result is width of rim of balanced "o".
-- "o" have second constant 16, this is how much balls you ca draw in balanced "o".
 - "o" describe true and false equly, but in result "o", "o" is true. 
 - "o" told is 50% or more you think that this or that will works than do.
 - current math told that "o" have constant 3.14159265359, its lie, maybe will be S = 5 * r^2, but that 5 is contant of circle is true.
@@ -99,7 +98,7 @@ To investigate "o" we must be "o", what we know:
 
 Idea/Tactics:
 - nature told to us that she loves simple geometric.
-- draw circle, in him coordinated cross, circle diameter must have 16 points, in and on this draw and describe 16 shapes, and get their coordinates.  
+- draw circle, in him coordinated cross, circle diameter must have 100 points, in and on this draw and describe 100 shapes, and get their coordinates.  
 - using coordinates of shapes, draw pentogram dots, try to replace numbers on their shape coordinates, result will be loop, maybe this numbers of loop will draw something for us.    
 - 4 we can replace with formula of square, like 3 is formula triangel.
 - populate this project between people, this our chance to live like 5 like humans.
