@@ -275,6 +275,7 @@ Maybe this flower is violet.
 by circle investtigate nature is vvery simple we have black and white colors and we must find all between and between then what we dont find in circle is 1 ideal for example gray color.
 
 what if in nature exists 100 types of materia like o have const 100 then maybe materia number 2 have only 2 states 3 only 3 states.
-also for example water is life so if we will knoww all 100 materia we will know what each number of circle mean liffe, death ....
+also for example water is life so if we will know all 100 materia we will know what each number of circle mean liffe, death ....
+also if water not exxists in o becouse this materia is love 1, that mean that like 1 balanced to 50, then water not balanced to something to death, so death forever not exists.
 
 Good luck, and dont forget to click "Star" button!
