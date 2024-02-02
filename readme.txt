@@ -302,6 +302,6 @@ problem that if we run pentogram mind and this mind can told that he equls to us
 i think we can only emulate logic of mind on our computers for mind emulation we need pentogram CPU maybe if just run this CPU without coding will runs human mind maybe we need just pentagram + electricity.
 
 if mind is our I and I is o our AI must like o sad investigate all around, also intresting simple form of mind is <5 for example
-3 triangel symbol of 3 fingered its birds or 2 also symbol of woman vagina also symbol of snake, maybe our current AI can investigate simplest mind of snake if he cant handle human mind.
+3 triangel symbol of 3 fingered its birds or infinity 2 also symbol of human mouth also symbol of snake, maybe our current AI can investigate simplest mind of snake if he cant handle human mind.
 
 Good luck, and dont forget to click "Star" button!
