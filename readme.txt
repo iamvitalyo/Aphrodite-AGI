@@ -279,7 +279,10 @@ also for example water is life so if we will know all 100 materia we will know w
 also if water not exxists in o becouse this materia is love 1, that mean that like 1 balanced to 50, then water not balanced to something to death, so death forever not exists.
 
 what if self-consciousness is I and I is o, self-consciousness our also based on touchings and o is symbol of touch.
+also to investigate self-consciousness we can investigate revert of life symbol is dot symbol of materia then we do revert and we have description of self-consciousness.
 
 what if all splits on two - reality and not reality or imagination and between them o. 
+
+
 
 Good luck, and dont forget to click "Star" button!
