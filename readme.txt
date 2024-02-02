@@ -54,7 +54,7 @@ This file is a draft please be free and write your ideas.
 Is people secret? We have "o" on our eyes its symbol of transparency, but pentagram walks in cross style and we have in center of eye dot, symbol of materia, symbol of not transparency, so we secret? = 50% / 50%.
 
 I and we need woman help, becouse:
-- i am not woman, i am boy left hhand of woman, i am not brain by 5.
+- i am not woman, i am boy right hhand of woman, i am not brain by 5.
 - i am very ill and for me hard to make brain activity.
 - i dont have money to hire womans but if will be donate i can.
 
