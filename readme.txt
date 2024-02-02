@@ -307,6 +307,6 @@ if mind is our I and I is o our AI must like o sad investigate all around, also 
 maybe for investigate true we need just pentogram algorithm but for mind emulation we need this alg + circle alg becouse pentagram walks by circle, so we need investigate both pentagram and o.
 
 ok if mind is adapter to read reality and another main organ off read reality is eyes and they marked with symbol o, mind is light and reality is light becouse in darkness you alot not read, so by circle he walks from false to true from drak to light, in result
-when we hungry we eat, when we bored we do something, when is hot we look cold and many another so we can emulate this skills of mind skills of balance skills of o if this is symbol of mind then nature have mind also, the question also prioritet of survive is on first place before to make free art, you agree that symbol of mind is O and if we want emulate mind in ours AI they must investigate this symbol o.  
+when we hungry we eat, when we bored we do something, when is hot we look cold and many another so we can emulate this skills of mind skills of balance skills of o if this is symbol of mind then nature have mind also, the question also prioritet of survive is on first place before to make free art, you agree that symbol of mind is O and if we want emulate mind in ours AI they must investigate this symbol o, by balance this is not simple but and not hard like o told.  
 
 Good luck, and dont forget to click "Star" button!
