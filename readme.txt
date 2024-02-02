@@ -315,4 +315,9 @@ Task to our AI to make them like our mind is "Please make O" its also means to b
 Drop make O symbol of Universe, o is binary what if we run o on our computers we will run universe and there all.  
 If drop divide all and self to O then we must divide drop divide 1.
 
+if we pentagram then we balanced i think we the same on 50% and different on 50%, now imagine 7.888 billion people (2021) 
+and maybe half of them if will works on this idea/project and all teaching of o not hard but not easy not need to be scientist to work on this project, the question in this scenario how much time we need to make this project,
+year? or half year? or maybe one weak? or one day? question when will be Uthopia. I think this project must have web site and populated, must be open source and free.
+I very ill and dont have money to hire coders for this project but i write to many companies and goverments about this project, so hope dies last. 
+
 Good luck, and dont forget to click "Star" button!
