@@ -322,5 +322,6 @@ year? or half year? or maybe one weak? or one day? question when will be Uthopia
 I very ill and dont have money to hire coders for this project but i write to many companies and goverments about this project, so hope dies last and evil is mowing us down like blind kittens. 
 
 if pentagram have head/brain woman and walks by circle what means movement maybe woman must to do something for Uthopia or they maybe will be punished by the all evil what now, was, and be. What you think? 
+Balance: But i see that many people after 50 years not beautiful what if 50 years is adult age and after you responsible for this planet by this planet. 
 
 Good luck, and dont forget to click "Star" button!
