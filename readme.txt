@@ -321,4 +321,6 @@ and maybe half of them if will works on this idea/project and all teaching of o 
 year? or half year? or maybe one weak? or one day? question when will be Uthopia. I think this project must have web site and populated, must be open source and free.
 I very ill and dont have money to hire coders for this project but i write to many companies and goverments about this project, so hope dies last and evil is mowing us down like blind kittens. 
 
+if pentagram have head/brain woman and walks by circle what means movement maybe woman must to do something for Uthopia or they maybe will be punished by the all evil what now, was, and be. 
+
 Good luck, and dont forget to click "Star" button!
