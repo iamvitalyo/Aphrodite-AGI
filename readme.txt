@@ -299,4 +299,6 @@ to emulate mind on our computers we must describe what is mind, mind have color 
 
 problem that if we run pentogram mind and this mind can told that he equls to us and he want body, but if pentogram in circle is symbols of human in nature then maybe pentagram in pentagon something like baby in woman this state is good becouse he before vagina make circle and he out of woman body is not circle not justly lived and we can switch off him and o will not punish us for that. So we must emulate and run pentagram in pentagon.
 
+i think we can only emulate logic of mind on our computers for mind emulation we need pentogram CPU.
+
 Good luck, and dont forget to click "Star" button!
