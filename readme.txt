@@ -281,6 +281,8 @@ also if water not exxists in o becouse this materia is love 1, that mean that li
 what if self-consciousness is I and I is o, self-consciousness our also based on touchings and o is symbol of touch.
 also to investigate self-consciousness we can investigate revert of life symbol is dot symbol of materia then we do revert and we have description of self-consciousness.
 
+what if simple form of life is soul life we must investigate this like and just duplicate in ouur computers.
+
 what if all splits on two - reality and not reality or imagination and between them o. 
 
 
