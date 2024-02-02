@@ -324,4 +324,7 @@ I very ill and dont have money to hire coders for this project but i write to ma
 if pentagram have head/brain woman and walks by circle what means movement maybe woman must to do something for Uthopia or they maybe will be punished by the all evil what now, was, and be. What you think? 
 Balance: But i see that many people after 50 years not beautiful what if 50 years is adult age and after you responsible for this planet by this planet. 
 
+if drop split water and make circle she divide, if we can divide green color and result yellow and blue what if we can divide words 
+for example love / 2 = bad and good, maybe we can divide also our science
+
 Good luck, and dont forget to click "Star" button!
