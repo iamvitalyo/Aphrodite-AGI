@@ -5,6 +5,7 @@ Aphrodite is project what must be key to Utopia. If investigate pentagram we see
 Not need to be a genius, all simple: Woman(brain or head in Pentagram) make => Pentagram AI is key to => Pentagram is key to => Circle is key to => Utopia.
 
 Tasks here https://trello.com/b/DVqArvf8/aphrodite please create and do.
+Progress here https://twitter.com/iamvitalyo
 
 To defeat all evil we need one bullet, one shot, this project is one silver bullet what will kill all evil, the question whether it is possible does not arise, the question is when and who will pull the trigger in the face of all evil and deaths.
 
