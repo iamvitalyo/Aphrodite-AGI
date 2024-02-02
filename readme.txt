@@ -285,6 +285,6 @@ what if simple form of life is soul life we must investigate this like and just 
 
 what if all splits on two - reality and not reality or imagination and between them o. 
 
-
+if self-consciousness is touches then where pentogram make cross is self-consciousness reaction.
 
 Good luck, and dont forget to click "Star" button!
