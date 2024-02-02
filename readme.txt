@@ -199,6 +199,12 @@ x = x + x
 x = x / 4
 x = x * 2
 
+what if o if 100 then 
+
+loop 100 => |i|
+	logic of * 3 * 5 + * 4 /
+end
+
 in humans in pentagram balanced form of reading information if eyes and they have circle, so our AI must be geometrical and geometry between art and math.    
 
 so if geometry main so human see = picture + pentogram + before what see pictures => result  
