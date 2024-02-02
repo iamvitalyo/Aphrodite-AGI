@@ -310,4 +310,6 @@ ok if mind is adapter to read reality and another main organ off read reality is
 when we hungry we eat, when we bored we do something, when is hot we look cold and many another so we can emulate this skills of mind skills of balance skills of o if this is symbol of mind then nature have mind also, the question also prioritet of survive is on first place before to make free art, you agree that symbol of mind is O and if we want emulate mind in ours AI they must investigate this symbol o, by balance this is not simple but and not hard like o told, also all humans do all self action for better life for love and o is also symbol of uthopia, if the logic of mind == path to o to uthopia, o is also movement and maybe mind is just task "Go to o, be o, Investigate o" so we can run this "o" task on our AI make them main and this will = mind.
 Task to our AI to make them like our mind is "Please make O" its also means to be like o to be allposibility.   
 
+Drop make O symbol of Universe, o is binary what if we run o on our computers we will run universe and there all.  
+
 Good luck, and dont forget to click "Star" button!
