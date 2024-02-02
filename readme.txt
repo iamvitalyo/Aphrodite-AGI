@@ -287,4 +287,6 @@ what if all splits on two - reality and not reality or imagination and between t
 
 if self-consciousness is touches then where pentogram make cross is self-consciousness reaction.
 
+maybe pentagram is clock what make loop from 1 to 100 and again.
+
 Good luck, and dont forget to click "Star" button!
