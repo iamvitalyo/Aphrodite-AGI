@@ -311,5 +311,6 @@ when we hungry we eat, when we bored we do something, when is hot we look cold a
 Task to our AI to make them like our mind is "Please make O" its also means to be like o to be allposibility.   
 
 Drop make O symbol of Universe, o is binary what if we run o on our computers we will run universe and there all.  
+If drop divide all and self to O then we must divide drop divide 1.
 
 Good luck, and dont forget to click "Star" button!
