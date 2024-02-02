@@ -304,4 +304,6 @@ i think we can only emulate logic of mind on our computers for mind emulation we
 if mind is our I and I is o our AI must like o sad investigate all around, also intresting simple form of mind is <5 for example
 3 triangel symbol of 3 fingered its birds or infinity 2 also symbol of human mouth also symbol of snake, maybe our current AI can investigate simplest mind of snake if he cant handle human mind.
 
+maybe for investigate true we need just pentogra, algorithm but for mind emulation we need this alg + circle alg becouse pentagram walks by circle, so we need investigate both pentagram and o.
+
 Good luck, and dont forget to click "Star" button!
