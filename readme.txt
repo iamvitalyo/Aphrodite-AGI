@@ -327,4 +327,6 @@ Balance: But i see that many people after 50 years not beautiful what if 50 year
 if drop split water and make circle she divide, if we can divide green color and result yellow and blue what if we can divide words 
 for example love / 2 = bad and good, maybe we can divide also our science
 
+think zero not exists in nature, so our math is a tug of war
+
 Good luck, and dont forget to click "Star" button!
