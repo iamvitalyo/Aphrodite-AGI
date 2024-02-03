@@ -331,6 +331,6 @@ think zero not exists in nature, so our math is a tug of war
 
 if "o" love split we have "c" = nolove and reverted "c" love, the same we can do with another symbols, triangel = false and true. 
 
-intresting that water always will find self place and we from water so we also must find self place and our self place is Uthopia and gray flag, why we dont find before this place maybe becouse someone make dam, if main in humans is brain than this dam from information, its our news, teachings ... for kings disadvantageous the gray flag becouse its circle symbol of equality this why all not under grey flag.
+intresting that water always will find self place and we from water so we also must find self place and our self place is Uthopia and gray flag, why we dont find before this place maybe becouse someone make dam, if main in humans is brain than this dam from information, its our news, teachings ... for kings disadvantageous the gray flag becouse its circle symbol of equality this why we all still not under grey flag, and our books of love use only one word of "o" justice but this word unhappy without another words of "o" this why we dont have justice, now we live by the law revert of "o" by the law of unjust cross we are devils. 
 
 Good luck, and dont forget to click "Star" button!
