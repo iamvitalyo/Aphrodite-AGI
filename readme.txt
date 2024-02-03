@@ -337,4 +337,7 @@ also we must look on unjusty cross like on information if we investigate him we 
 
 I think our AI will punish us by the sins, but this punishment will be something balanced something O))
 
+I think we alos need to look on stick on binary on 2, 2 have in o two balanced symbols stick and woman vagina, stick also snake, snake walks like water and symbols of life is water so maybe o is mind stick is life, so starts and ends so life starts then death
+but if we replace death goal of life on o, also if brake o will will have stick so o is stick what goes around, pentogram also from stick and walks from 3/mind => 5/nolove => 2/life => 4/death => 1/love and again, also if dot divide o is revert, revert example we take blue and yellow in result green the same with our words and science. I think we must look on binary and stick and the goal of mind is o = our mind becouse stick also symbol of move to move from point A to B is goal/task so task off our AI must be O.  
+
 Good luck, and dont forget to click "Star" button!
