@@ -329,4 +329,6 @@ for example love / 2 = bad and good, maybe we can divide also our science
 
 think zero not exists in nature, so our math is a tug of war
 
+if "o" love split we have "c" = false|nolove and reverted "c" true|love, the same we can do with another symbols.  
+
 Good luck, and dont forget to click "Star" button!
