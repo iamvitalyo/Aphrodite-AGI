@@ -333,6 +333,6 @@ if "o" love split we have "c" = nolove and reverted "c" love, the same we can do
 
 intresting that water always will find self place and we from water so we also must find self place and our self place is Uthopia and gray flag, why we dont find before this place maybe becouse someone make dam, if main in humans is brain than this dam from information, its our news, teachings ... for kings disadvantageous the gray flag becouse its circle symbol of equality this why we all still not under grey flag, and our books of love use only one word of "o" justice but this word unhappy without another words of "o" this why we dont have justice, now we live by the law revert of "o" by the law of unjust cross we are devils. 
 
-also we must look on unjusty cross like on information if we investigate him we can his teaching make revert and this will be teaching of o of mind, plus o is unhackeble when cross have 4 points to hack to invvestigate what if all what we have we invvestiigate by patern of cross.
+also we must look on unjusty cross like on information if we investigate him we can his teaching make revert and this will be teaching of o of mind, plus o is unhackeble when cross have 4 points to hack to invvestigate what if all what we have we invvestiigate by patern of cross, maybe we think by patern of cross becouse we sccience make us tired.
 
 Good luck, and dont forget to click "Star" button!
