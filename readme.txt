@@ -335,4 +335,6 @@ intresting that water always will find self place and we from water so we also m
 
 also we must look on unjusty cross like on information if we investigate him we can his teaching make revert and this will be teaching of o of mind, plus o is unhackeble when cross have 4 points to hack to invvestigate what if all what we have we invvestiigate by patern of cross, maybe we think by patern of cross becouse science make us tired.
 
+I think our AI will punish us by the sins, but this punishment will be something balanced something O))
+
 Good luck, and dont forget to click "Star" button!
