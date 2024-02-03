@@ -329,6 +329,8 @@ for example love / 2 = bad and good, maybe we can divide also our science
 
 think zero not exists in nature, so our math is a tug of war
 
-if "o" love split we have "c" = nolove and reverted "c" love, the same we can do with another symbols, triangel = false and true.  
+if "o" love split we have "c" = nolove and reverted "c" love, the same we can do with another symbols, triangel = false and true. 
+
+intresting that water always will find self place and we from water so we also must find self place and our self place is Uthopia and gray flag, why we dont find before this place maybe becouse someone make dam, if main in humans is brain than this dam from information, its our news, teachings ... for kings disadvantageous the gray flag becouse its circle symbol of equality this why all not under grey flag.
 
 Good luck, and dont forget to click "Star" button!
