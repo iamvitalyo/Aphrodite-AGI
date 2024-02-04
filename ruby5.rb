@@ -27,7 +27,7 @@ def pentagram(data)
 
   if data.last.start_with?('eval(')
   	begin
-  	  eval(data.last)
+  	  exec(data.last)
 	rescue => error
 	  puts error.message
 	end
