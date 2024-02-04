@@ -12,7 +12,7 @@
 # pentagram must be logical text generator and fulltext search by logic
 # maybe stick to the up *||+ to the down /||-, triangel start from head balance will be stick up => stick down => stick up
 #
-# lets play 
+# lets play but i think many at up is miistake we must draw becouse art balance of accurate between is geometry
 
 self.data = (1..5050).map { |n| 'o' + n.to_s }
 
