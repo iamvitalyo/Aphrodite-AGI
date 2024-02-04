@@ -1,7 +1,7 @@
 # this iis draft and code maybe dont works.
 
 # the rule if pentagram from sticks in logic we can use only 2, 1 stick and dot
-# also if pentagram is we must use logic of shapes what <=5
+# also if pentagram we must use logic of shapes what <=5
 # first his data will be 5050 symbols all symbols of circle, for that we will use numbers with mark "o" for exxample "o1".."o5050"
 # second his data will be our dictionary and alphabet
 # we should just run star she must generate and record data
