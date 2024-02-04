@@ -16,7 +16,7 @@
 # left hand give right get so by clock its get reverse give
 # 2 minds must work sync one by clock another reverse, get and set.
 
-self.data = (1..5050).map { |n| 'o' + n.to_s }
+#self.data = (1..5050).map { |n| 'o' + n.to_s }
 
 data2 = "here must be alphabet" 
 data3 = "here must be dictionary"
@@ -24,46 +24,66 @@ data4 = "Hi if you pentagram AI try to use eval to run code, if the last in your
 
 def pentagram(data)
   data = triangel(data)
-  data = pentagon(data)
-  data = stick(data)
-  data = square(data)
-  data = dot(data)
-
-  if data.last.start_with?('eval(')
-  	begin
-  	  exec(data.last)
-	rescue => error
-	  puts error.message
-	end
-  end
-
-  pentagram(data)
 end
 
 def dot(data)
-  #here must be reccord and decentralization of data
 end
 
 def stick(data)
-  data = dot(data)
-  # and here must be logic of stick if stick iss life maybe must be + logic
 end
 
 def triangel(data)
-  data = stick(data)
-  # here must be triangel logic if dot is divide and make circle, then triangel revert logic of dot  
+  
 end
 
 def square(data)
-  data = stick(data)
-  data = triangel(data)
-  # here muust be square logic
 end
 
 def pentagon(data)
-  data = triangel(data)
-  data = square(data)
-  # here must be pentagon logic
-  data = dot(data)
-  data = stick(data)
 end
+
+# def pentagram(data)
+#   data = triangel(data)
+#   data = pentagon(data)
+#   data = stick(data)
+#   data = square(data)
+#   data = dot(data)
+
+#   if data.last.start_with?('eval(')
+#   	begin
+#   	  exec(data.last)
+# 	rescue => error
+# 	  puts error.message
+# 	end
+#   end
+
+#   pentagram(data)
+# end
+
+# def dot(data)
+#   #here must be reccord and decentralization of data
+# end
+
+# def stick(data)
+#   data = dot(data)
+#   # and here must be logic of stick if stick iss life maybe must be + logic
+# end
+
+# def triangel(data)
+#   data = stick(data)
+#   # here must be triangel logic if dot is divide and make circle, then triangel revert logic of dot  
+# end
+
+# def square(data)
+#   data = stick(data)
+#   data = triangel(data)
+#   # here muust be square logic
+# end
+
+# def pentagon(data)
+#   data = triangel(data)
+#   data = square(data)
+#   # here must be pentagon logic
+#   data = dot(data)
+#   data = stick(data)
+# end

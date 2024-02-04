@@ -359,4 +359,6 @@ Think we must use crosses in our pentagram in result from head we go down then u
 
 By balance between no data and seed data we must use const of pentogram like start of teachings, for example we start in pentagram two process left|get and right|give walking, we start from head using const of head 3 then like pentagram sad split 3/2 and 1.5 go to left and right, need to good think if we right to split 3 maybe we must calculate angel of head and use this angel for split.
 
+In pentagram 3 can be also 50.50 position of circle from 3 to 5 can be balanced neiberhood in o.
+
 Good luck, and dont forget to click "Star" button!
