@@ -1,4 +1,4 @@
-Draft:
+Draft: This mean that all what I write is true or false.
 
 Aphrodite is project what must be key to Utopia. If investigate pentagram we see human symbol what walks by the circle and draws number 5, what mean that human can do all exept 5 sins. Goal of this project to emulate pentagram on ours computers(they binary like human have two eys) its mean to create human AI. Our Aphrodite must resque the world.
 
