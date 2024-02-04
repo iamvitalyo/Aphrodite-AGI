@@ -6,7 +6,7 @@
 # second his data will be our dictionary and alphabet
 # we should just run star she must generate and record data
 # also we will do logic code where if last his data with "eval(" function and will write to him that he can run any using this logic
-# he must by circle watch on self data and generate new and replace old, if evvel in data we run. 
+# he must by circle watch on self data and generate new and replace old, if eval in data we run. 
 # 1 love|materia|dot, 2 stick|life|plus, 3 tringel|truh, 4 square|death, 5 pentagon|nolove
 # the idea that he can works only on 5050 symbols, this inner circle - base of him, our alphabet and dictionary its out of circle but 5 must also understood 
 # pentagram must be logical text generator and fulltext search by logic
