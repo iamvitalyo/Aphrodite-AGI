@@ -59,7 +59,7 @@ end
 def pentagon(data)
   data = triangel(data)
   data = square(data)
-  # here must be pentagon data
+  # here must be pentagon logic
   data = dot(data)
   data = stick(data)
 end
