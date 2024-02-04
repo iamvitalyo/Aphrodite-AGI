@@ -10,6 +10,7 @@
 # 1 love|materia|dot, 2 stick|life|plus, 3 tringel|truh, 4 square|death, 5 pentagon|nolove
 # the idea that he can works only on 5050 symbols, this inner circle - base of him, our alphabet and dictionary its out of circle but 5 must also understood 
 # pentagram must be logical text generator and fulltext search by logic
+# maybe stick to the up *||+ to the down /||-, triangel start from head balance will be stick up => stick down => stick up
 #
 # lets play 
 
