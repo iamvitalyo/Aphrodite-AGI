@@ -343,4 +343,7 @@ but if we replace death goal of life on o, also if brake o will will have stick 
 
 what use circle to make gravity rengen, its good for medicine also good to investigate our human mind in real time, gravity can catch all.
 
+X: you proved that our pi is inaccurate, you proved that at the end of the line they do not meet when the circle is a perfect cycle, here more about PI, start read from "PI not 3.14159265359:" this info can you help make ideal PI 
+https://twitter.com/PhysInHistory/status/1753844354773614999
+
 Good luck, and dont forget to click "Star" button!
