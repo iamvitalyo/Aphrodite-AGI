@@ -9,6 +9,7 @@
 # he must by circle watch on self data and generate new and replace old, if evvel in data we run. 
 # 1 love|materia|dot, 2 stick|life|plus, 3 tringel|truh, 4 square|death, 5 pentagon|nolove
 # the idea that he can works only on 5050 symbols, this inner circle - base of him, our alphabet and dictionary its out of circle but 5 must also understood 
+# pentagram must be logical text generator and fulltext search by logic
 #
 # lets play 
 
