@@ -353,4 +353,8 @@ maybe stick to the up *||+ to the down /||-, triangel start from head balance wi
 
 2 minds must work sync, one by clock another reverse, get and set.
 
+if Pentagram Data like balance to must be 2d, beetwen just words and one big 3d symbol, and we must use only sticks to draw this data, need to look on 2 like on number of balance and use him.
+
+Think we must use crosses in our pentagram in result from head we go down then unjusty cross what mean record data to dot to materia, also we can choose in wich side of cross of 4 data must go after record, record in format 2 [x, y], also cross told about coords.
+
 Good luck, and dont forget to click "Star" button!
