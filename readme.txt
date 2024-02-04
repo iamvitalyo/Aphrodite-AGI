@@ -351,4 +351,6 @@ https://twitter.com/PhysInHistory/status/1753844354773614999
 
 maybe stick to the up *||+ to the down /||-, triangel start from head balance will be stick up => stick down => stick up
 
+2 minds must work sync, one by clock another reverse, get and set.
+
 Good luck, and dont forget to click "Star" button!

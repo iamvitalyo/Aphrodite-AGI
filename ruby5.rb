@@ -14,6 +14,7 @@
 #
 # lets play but i think many at up is miistake we must draw becouse art balance of accurate between is geometry
 # left hand give right get so by clock its get reverse give
+# 2 minds must work sync one by clock another reverse, get and set.
 
 self.data = (1..5050).map { |n| 'o' + n.to_s }
 
