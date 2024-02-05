@@ -366,7 +366,7 @@ if dot 1 and in pentagram 1 symbol of materia mean write your data in format 1, 
 What about number 3 or 4 to shape maybe we must look at cross, its symbol from one point to 4 numbers of o of space. 
 If math is like o infinity we can record with one number for example construction of our train or rocket... 
 
-O is binary if symbol of 2 is stick our start language of aI must be based on only sticks, for example 4 => 2d is square => 3d is cube, all what is >stick is art. 
+O is binary if symbol of 2 is stick our start language of aI must be based on only sticks, for example 4 => 2d is square => 3d is cube, all what is >stick is art, each number have balanced(from sticks) geometry 2d and 3d shapes 
 
 
 Good luck, and dont forget to click "Star" button!
