@@ -361,7 +361,7 @@ By balance between no data and seed data we must use const of pentogram like sta
 
 In pentagram 3 can be also 50.50 position of circle from 3 to 5 can be balanced neiberhood in o.
 
-if dot 1 and in pentagram 1 symbol of materia mean write your data in format 1, so each number something means, 4 square, 3 triangel, numbers is words and their reaction +/*-= is result of concat words. Think this balance hot hard but if you remember child age not easy. And look on symbol of materia number must be Integer, we should use only Integers.
+if dot 1 and in pentagram 1 symbol of materia mean write your data in format 1, so each number something means, 4 square, 3 triangel, numbers is words and their reaction +/*-= is result of concat words. Think this balance hot hard but if you remember child age not easy. And look on symbol of materia number must be Integer, we should use only Integers. Each integer number have shape in circle and this shape is word.
 
 
 
