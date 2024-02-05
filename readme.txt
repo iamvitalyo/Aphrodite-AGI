@@ -363,7 +363,8 @@ In pentagram 3 can be also 50.50 position of circle from 3 to 5 can be balanced 
 
 if dot 1 and in pentagram 1 symbol of materia mean write your data in format 1, so each number something means, 4 square, 3 triangel, numbers is words and their reaction +/*-= is result of concat words. Think this balance hot hard but if you remember child age not easy. And look on symbol of materia number must be Integer, we should use only Integers. Each integer number have shape in circle and this shape is word. 
 
-What about number 3 or 4 to shape maybe we must look at cross, its symbol from one point to 4 numbers of o of space.
+What about number 3 or 4 to shape maybe we must look at cross, its symbol from one point to 4 numbers of o of space. 
+If math is like o infinity we can record with one number for example construction of our train or rocket... 
 
 
 
