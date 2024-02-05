@@ -32,7 +32,8 @@ end
 def stick(data)
 end
 
-def triangel(data)
+def triangel(data = 50.50)
+  data / 2
   
 end
 
