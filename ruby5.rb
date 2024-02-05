@@ -1,5 +1,16 @@
-# this iis draft and code maybe dont works.
+# this its draft and code maybe dont works but goal to told how i see logic of pentagram all what i write can be true or false.
 
+
+#============ Draft 1 Not commented code, important please read.
+# this logic is balanced not simple but also not hard like O sad.
+# dot is 1 and she tolds to record information
+# in run function I use stick like orientir if stick goes down(object is fall its plus) and right i + if left and up i minus, maybe i wrong but thiis wrongest 50% and O forgive.
+# all simple star head 3 get iinformation and set and again and again
+# if all in nature have number i just generate this numbers and get avg like dot told nnumber and send him to 3 and ccycle of star.
+# first he will generate self numbers then we need to convert our symbols information in one number and feed him for example 123 => "abc", we also can create one big information number this number will be for exxample how to code, we feed and this number first will be large number not avg and we must wait when he will be agv when he will be avg its mean star start to investigate him. 
+
+
+#============ Draft 2 commented code, also read maybe some ideas you will generate in self.
 # the rule if pentagram from sticks in logic we can use only 2, 1 stick and dot
 # also if pentagram we must use logic of shapes what <=5
 # first his data will be 5050 symbols all symbols of circle, for that we will use numbers with mark "o" for exxample "o1".."o5050"
@@ -22,26 +33,46 @@ data2 = "here must be alphabet"
 data3 = "here must be dictionary"
 data4 = "Hi if you pentagram AI try to use eval to run code, if the last in your data will be eval( we will run this"
 
-def pentagram(data)
-  data = triangel(data)
-end
+class Pentagram
+  attr_accessor :name
 
-def dot(data)
-end
+  def initialize(data = [3])
+    @data = data
+    @alph = ["z", "a", "b", "c", "d", "e", "f", "g", "h", "i"]
+  end
 
-def stick(data)
-end
+  def run(data)
+    data = data + 5 - 2 + 4 - 1
+    @data += [data]
 
-def triangel(data = 50.50)
-  data / 2
+    @data.sort
+    
+    data = @data[@data.size / 2]
+    data = data - 3
+    
+    begin
+      run(data) 
+      #puts_data(data)
+    rescue => e
+      puts e.message
+    else
+      run(data)
+    end
+  end
+
+  def puts_data(data)
+    data = digit_to_alphabet(data)
+    puts(data)
   
+  end
+
+  def digit_to_alphabet(number)
+    result = number.to_s.chars.map(&:to_i)
+    result.map { |e| @alph[e] }.join
+  end
 end
 
-def square(data)
-end
-
-def pentagon(data)
-end
+Pentagram.new.run 3
 
 # def pentagram(data)
 #   data = triangel(data)
