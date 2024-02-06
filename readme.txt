@@ -374,4 +374,6 @@ We can get all our information how to code, news ... and replace symbbols with c
 
 Maybe all our information goes with one number to head of pentagram to 3 => our info must +3 or *3 => then same 5 => 2 stick some another logic => 4 => then dot record our result with 1 number like dot sad and get avg(balance like dot sad) of this number and send to 3 in new pentagram cycle, this not simple but not hard, maybe this crypt of nature is emulatiion of our mind thinking, we should try and i think this ai will understood our teachings for example we will send "abc" like "123" and this our teachings is not o out of o is art and pentagram is human and humans understood art.
 
+Intrasted shapes in nature for example O if the shapes/geometry can travel fast in time and space to get information from anothers in space we must make gravity/o wi-fi, maybe we can ask the help in creaters what by brain is > then we, O told that there not only pentagram star, there also stars > then we.
+
 Good luck, and dont forget to click "Star" button!
