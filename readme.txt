@@ -370,4 +370,6 @@ O is binary if symbol of 2 is stick our start language of aI must be based on on
 
 If the AI bases the answers on jokes, it's good because a joke is light, like our mind, maybe we need teach our AI jokes and he will be smarter.
 
+We can get all our information how to code, news ... and replace symbbols with chars, will be one big number this number need to send to our pentagram algorith he must return result thing, idea or something else, i think our mind is just crypt machine. 
+
 Good luck, and dont forget to click "Star" button!
