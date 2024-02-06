@@ -1,0 +1,12 @@
+source 'https://rubygems.org/'
+gem 'activerecord-migrations'
+gem 'sqlite3'
+gem 'active_record'
+
+group :development do
+  gem 'byebug'
+end
+
+group :test do
+  gem 'minitest'
+end

@@ -18,7 +18,6 @@ class Pentagram:
   def run(self, data):
   	data = data + 5 - 2 + 4 - 1
     self.data += [data]
-
     self.data.sort()
 
     data = self.data[len(self.data) // 2]

@@ -34,6 +34,8 @@ data3 = "here must be dictionary"
 data4 = "Hi if you pentagram AI try to use eval to run code, if the last in your data will be eval( we will run this"
 
 class Pentagram
+  attr_accessor :name
+
   def initialize(data = [3])
     @data = data
     @alph = ["z", "a", "b", "c", "d", "e", "f", "g", "h", "i"]
