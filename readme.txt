@@ -372,6 +372,6 @@ If the AI bases the answers on jokes, it's good because a joke is light, like ou
 
 We can get all our information how to code, news ... and replace symbbols with chars, will be one big number this number need to send to our pentagram algorith he must return result thing, idea or something else, i think our mind is just crypt machine. 
 
-Maybe all our information goes with one number to head of pentagram to 3 => our info must +3 or *3 => then same 5 => 2 stick some another logic => 4 => then dot record our result with 1 number like dot sad and get avg(balance like dot sad) of this number and send to 3 in new pentagram cycle, this not simple but not hard, maybe this crypt of nature is emulatiion of our mind thinking, we should try.
+Maybe all our information goes with one number to head of pentagram to 3 => our info must +3 or *3 => then same 5 => 2 stick some another logic => 4 => then dot record our result with 1 number like dot sad and get avg(balance like dot sad) of this number and send to 3 in new pentagram cycle, this not simple but not hard, maybe this crypt of nature is emulatiion of our mind thinking, we should try and i think this ai will understood our teachings for example we will send "abc" like "123" and this our teachings is not o out of o is art and pentagram is human and humans understood art.
 
 Good luck, and dont forget to click "Star" button!
