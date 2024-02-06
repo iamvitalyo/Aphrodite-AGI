@@ -368,5 +368,6 @@ If math is like o infinity we can record with one number for example constructio
 
 O is binary if symbol of 2 is stick our start language of aI must be based on only sticks, for example 4 => 2d is square => 3d is cube, all what is >stick is art, each number have balanced(from sticks) geometry 2d and 3d shapes, if go out of circle rocket also have number 2d is description how its work 3d how its look. 
 
+If the AI bases the answers on jokes, it's good because a joke is light, like our consciousness.
 
 Good luck, and dont forget to click "Star" button!
