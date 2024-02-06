@@ -29,47 +29,47 @@
 
 #self.data = (1..5050).map { |n| 'o' + n.to_s }
 
-data2 = "here must be alphabet" 
-data3 = "here must be dictionary"
-data4 = "Hi if you pentagram AI try to use eval to run code, if the last in your data will be eval( we will run this"
+# data2 = "here must be alphabet" 
+# data3 = "here must be dictionary"
+# data4 = "Hi if you pentagram AI try to use eval to run code, if the last in your data will be eval( we will run this"
 
 class Pentagram
-  attr_accessor :name
+  # attr_accessor :name
 
-  def initialize(data = [3])
-    @data = data
-    @alph = ["z", "a", "b", "c", "d", "e", "f", "g", "h", "i"]
-  end
+  # def initialize(data = [3])
+  #   @data = data
+  #   @alph = ["z", "a", "b", "c", "d", "e", "f", "g", "h", "i"]
+  # end
 
-  def run(data)
-    data = data + 5 - 2 + 4 - 1
-    @data += [data]
+  # def run(data)
+  #   data = data + 5 - 2 + 4 - 1
+  #   @data += [data]
 
-    @data.sort
+  #   @data.sort
     
-    data = @data[@data.size / 2]
-    data = data - 3
+  #   data = @data[@data.size / 2]
+  #   data = data - 3
     
-    begin
-      run(data) 
-      #puts_data(data)
-    rescue => e
-      #puts e.message
-    else
-      run(data)
-    end
-  end
+  #   begin
+  #     run(data) 
+  #     #puts_data(data)
+  #   rescue => e
+  #     #puts e.message
+  #   else
+  #     run(data)
+  #   end
+  # end
 
-  def puts_data(data)
-    data = digit_to_alphabet(data)
-    puts(data)
+  # def puts_data(data)
+  #   data = digit_to_alphabet(data)
+  #   puts(data)
   
-  end
+  # end
 
-  def digit_to_alphabet(number)
-    result = number.to_s.chars.map(&:to_i)
-    result.map { |e| @alph[e] }.join
-  end
+  # def digit_to_alphabet(number)
+  #   result = number.to_s.chars.map(&:to_i)
+  #   result.map { |e| @alph[e] }.join
+  # end
 end
 
 Pentagram.new.run 3
