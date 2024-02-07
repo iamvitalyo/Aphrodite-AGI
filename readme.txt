@@ -380,4 +380,6 @@ If pentagram alg "x * 100 / 4 / 2 / 5 / 3", dot|1 is *100, square|4 is /4.... if
 
 if human logic + use english symbols to describe self or snake => 'i', 'snake' and another true can be, for example we convert words in nnumbers "abc.." => "123.." and must find there logic of numbers|words, human|pentagram logic.
 
+if data walks 3 alg of triangel > 1 alg of dot > alg of square > alg of stick > alg of pentagon > and again 3... 
+
 Good luck, and dont forget to click "Star" button!
