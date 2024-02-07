@@ -376,6 +376,6 @@ Maybe all our information goes with one number to head of pentagram to 3 => our 
 
 Intrasted shapes in nature for example O if the shapes/geometry can travel fast in time and space to get information from anothers in space we must make gravity/o wi-fi, maybe we can ask the help in creaters what by brain is > then we, O told that there not only pentagram star, there also stars > then we.
 
-Maybe alg of pentagram x * 100 / 4 / 2 / 5 / 3
+If pentagram alg "x * 100 / 4 / 2 / 5 / 3", dot|1 is *100, square|4 is /4....
 
 Good luck, and dont forget to click "Star" button!
