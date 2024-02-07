@@ -376,6 +376,8 @@ Maybe all our information goes with one number to head of pentagram to 3 => our 
 
 Intrasted shapes in nature for example O if the shapes/geometry can travel fast in time and space to get information from anothers in space we must make gravity/o wi-fi, maybe we can ask the help in creaters what by brain is > then we, O told that there not only pentagram star, there also stars > then we.
 
-If pentagram alg "x * 100 / 4 / 2 / 5 / 3", dot|1 is *100, square|4 is /4....
+If pentagram alg "x * 100 / 4 / 2 / 5 / 3", dot|1 is *100, square|4 is /4.... if we calculate and replace "123..."=>"abc..."
+
+if human logic + use english symbols to describe self or snake => 'i', 'snake' and another true can be, for example we convert words in nnumbers "abc.." => "123.." and must find there logic of numbers|words, human|pentagram logic.
 
 Good luck, and dont forget to click "Star" button!
