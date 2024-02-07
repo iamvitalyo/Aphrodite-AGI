@@ -33,7 +33,7 @@
 # data3 = "here must be dictionary"
 # data4 = "Hi if you pentagram AI try to use eval to run code, if the last in your data will be eval( we will run this"
 
-class Pentagram
+class Pentagram < ActiveRecord::Base
   # attr_accessor :name
 
   # def initialize(data = [3])
@@ -70,6 +70,16 @@ class Pentagram
   #   result = number.to_s.chars.map(&:to_i)
   #   result.map { |e| @alph[e] }.join
   # end
+
+  def run(data = 3)
+    data = data * 3
+    data = data * 5
+    data = data + 2
+    data = data * 4
+    data = data / 100
+
+    data = data 
+  end
 end
 
 Pentagram.new.run 3
