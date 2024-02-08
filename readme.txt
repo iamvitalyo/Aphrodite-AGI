@@ -384,6 +384,6 @@ if data walks 3 alg of triangel > 1 alg of dot > alg of square > alg of stick > 
 
 this project must do woman becouse she in pentagram is O, and O is also symbol of truth, if left will do all will be simple and not work if right of pentagram all will be difficcult.
 
-Also imagine that you number what walks in pentagram maybbe when you walk down its + up by gravity its -, the same with left and right, also look on unjustly cross on your path its crossroads and you as number must choose in what direct you must go.
+Also imagine that you number what walks in pentagram maybbe when you walk down its + up by gravity its -, the same with left and right, also look on unjustly cross on your path its crossroads and you as number must choose in what direct you must go, also 3 is triangel maybe choose where is move to right or left same 4,5.
 
 Good luck, and dont forget to click "Star" button!
