@@ -386,4 +386,6 @@ this project must do woman becouse she in pentagram is O, and O is also symbol o
 
 Also imagine that you number what walks in pentagram maybbe when you walk down its + up by gravity its -, the same with left and right, also look on unjustly cross on your path its crossroads and you as number must choose in what direct you must go, also 3 is triangel maybe choose where is move to right or left same 4,5.
 
+If our thinking is pentagram and she told about balance we must look on circle for example 1 balanced opposite of 50, also we have deal with binary with stick so if we told 1 we draw line in circcle to 50, also pentragram walks by circle in cross style we have deal with cross with coordinate line, we have deal with numbers of circle and coordinate line in ccircle.    
+
 Good luck, and dont forget to click "Star" button!
