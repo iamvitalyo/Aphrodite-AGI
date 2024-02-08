@@ -380,6 +380,10 @@ If pentagram alg "x * 100 / 4 / 2 / 5 / 3", dot|1 is *100, square|4 is /4.... if
 
 if human logic + use english symbols to describe self or snake => 'i', 'snake' and another true can be, for example we convert words in nnumbers "abc.." => "123.." and must find there logic of numbers|words, human|pentagram logic.
 
-if data walks 3 alg of triangel > 1 alg of dot > alg of square > alg of stick > alg of pentagon > and again 3... 
+if data walks 3 alg of triangel > 1 alg of dot > alg of square > alg of stick > alg of pentagon > and again 3...
+
+this project must do woman becouse she in pentagram is O, and O is also symbol of truth, if left will do all will be simple and not work if right of pentagram all will be difficcult.
+
+Also imagine that you number what walks in pentagram maybbe when you walk down its + up by gravity its -, the same with left and right, also look on unjustly cross on your path its crossroads and you as number must choose in what direct you must go.
 
 Good luck, and dont forget to click "Star" button!
