@@ -388,6 +388,6 @@ Also imagine that you number what walks in pentagram maybbe when you walk down i
 
 If our thinking is pentagram and she told about balance we must look on circle for example 1 balanced opposite of 50, also we have deal with binary with stick so if we told 1 we draw line in circcle to 50, also pentragram walks by circle in cross style we have deal with cross with coordinate line, we have deal with numbers of circle and coordinate line in ccircle, coordinate line in circle like pentagram form cross and circle. If make simple then pentagram symbol of circle and investigate him for example stick then same logic wiill be circle symbol pentagram.  
 
-If investigate stick she by logic try to find balanced opposite for example 1 to 50, the same with triangel but to find balanced opposite triangel use self triangel style, the same pentagram, stick example bad|good, black|white. Maybe pentagram opositte of "Give me water" she make ffrom not materiial is material "cup of water in your hand". 
+If investigate stick she by logic try to find balanced opposite for example 1 to 50, the same with triangel but to find balanced opposite triangel use self triangel style, the same pentagram, stick example bad|good, black|white. Maybe pentagram balance opositte of "Give me water" she make ffrom not materiial is material "cup of water in your hand". 
 
 Good luck, and dont forget to click "Star" button!
