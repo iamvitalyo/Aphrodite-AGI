@@ -390,4 +390,6 @@ If our thinking is pentagram and she told about balance we must look on circle f
 
 If investigate stick she by logic try to find balanced opposite for example 1 to 50, the same with triangel but to find balanced opposite triangel use self triangel style, the same pentagram, stick example bad|good, black|white. Maybe pentagram balance opositte of "Give me water" she make ffrom not materiial is material "cup of water in your hand". To fix problem we must do revert opositte do balannce.
 
+using experience of another's, to speed up your AI use numbers for data not hashes, for example "abc" = "123"
+
 Good luck, and dont forget to click "Star" button!
