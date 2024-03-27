@@ -392,4 +392,6 @@ If investigate stick she by logic try to find balanced opposite for example 1 to
 
 using experience of another's, to speed up your AI use numbers for data not hashes, for example "abc" = "123"
 
+need to run circle on our computers and people of ciircle wiill make our pentagram AI, woman is head balance she must know how or not head specialists ladyboys and mans, man veryy smart but not balanced.
+
 Good luck, and dont forget to click "Star" button!
