@@ -393,5 +393,14 @@ If investigate stick she by logic try to find balanced opposite for example 1 to
 using experience of another's, to speed up your AI use numbers for data not hashes, for example "abc" = "123"
 
 need to run circle on our computers and people of ciircle wiill make our pentagram AI, woman is head balance she must know how or not head specialists ladyboys and mans, man veryy smart but not balanced.
+50 50
+25 75
+12 32
+this is example of coords points how to draw in percennt so min of coords x,y must be 0 max 100 what goes down is x left to right y
+this nums is check points beetwenn them also numbeers what must be drawed, circle is nose when coords and drawinng is tail circle start 2d our drawing must be 3d each point then point again divide andd we have many poinnts in 2d then step new points of 2d and
+again again is 3d drawinng 1 is smalest molecula off time not divided sso drawing must be with no divided numbers by logic 
+when number will go to 1 or 100 we must from zero make 100 from 1 needd to think, in thiis emulationn wee will see all and humans 
+and theeir technologi we can draw this 3d without recording before drawing, by balancce same wiith seed simple make dificult so start of universe was siimplee by balance write many or nothing nature write 1 symbol O to push table maximum to wall iis our goal
+this simple drawing, spin and dot or drop like nature told divvide, good luuck i will try but i have problem with health.  
 
 Good luck, and dont forget to click "Star" button!
