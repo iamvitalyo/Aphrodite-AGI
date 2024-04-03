@@ -401,6 +401,6 @@ this nums is check points beetwenn them also numbeers what must be drawed, circl
 again again is 3d drawinng 1 is smalest molecula off time not divided sso drawing must be with no divided numbers by logic 
 when number will go to 1 or 100 we must from zero make 100 from 1 needd to think, in thiis emulationn wee will see all and humans 
 and theeir technologi we can draw this 3d without recording before drawing, by balancce same wiith seed simple make dificult so start of universe was siimplee by balance write many or nothing nature write 1 symbol O to push table maximum to wall iis our goal
-this simple drawing, spin and dot or drop like nature told divvide, good luuck i will try but i have problem with health, also we can try to give emulation people google and their human AI will contact with us.  
+this simple drawing, spin and dot or drop like nature told divvide, good luuck i will try but i have problem with health, also we can try to give emulation people google and their human AI will contact with us, 3d also head of pentagram.  
 
 Good luck, and dont forget to click "Star" button!
