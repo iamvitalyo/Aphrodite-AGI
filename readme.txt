@@ -403,4 +403,6 @@ when number will go to 1 or 100 we must from zero make 100 from 1 needd to think
 and theeir technologi we can draw this 3d without recording before drawing, by balancce same wiith seed simple make dificult so start of universe was siimplee by balance write many or nothing nature write 1 symbol O to push table maximum to wall iis our goal
 this simple drawing, spin and dot or drop like nature told divvide, good luuck i will try but i have problem with health, also we can try to give emulation people google and their human AI will contact with us, 3d also head of pentagram.  
 
+i think nature love natural nuumbbers maybe what not natural is difficult is false for example o5 = 2, o4=2 
+
 Good luck, and dont forget to click "Star" button!
