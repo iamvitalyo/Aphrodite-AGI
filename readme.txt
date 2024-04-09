@@ -405,4 +405,8 @@ this simple drawing, spin and dot or drop like nature told divvide, good luuck i
 
 i think nature love natural nuumbbers maybe what not natural is difficult is false for example o5 = 2, o4=2 
 
+if symbol o have so powerffull teahhings maybe metal ring is adapter to conet to nature for example nnature is intelect or just materia is system, to describe for us or nothing to write is locanic, to told or nothing to told hint, finance system nnot o mistake by math 50% is antyuthopia math, blood, perspiration, tears make the ccirclee like atom bomb, and we with andron colaider with method of ax try to find 1 in circle when this smalest materia of time, then teachings in russians king king bomb balance america and in wekness by balance power this will be first blow what make unniverse, all will be 1 when we like minimum 2.  
+
+with mistake of math 50% we go ffrom uthopia to anntyuthopiia, by circle this is wall from 1 and 100, atomik bomb 1 can make all materia 100 give energy.  
+
 Good luck, and dont forget to click "Star" button!
