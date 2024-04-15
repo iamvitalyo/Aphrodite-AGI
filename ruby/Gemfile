@@ -1,11 +1,8 @@
 source 'https://rubygems.org/'
-gem 'activerecord-migrations'
+
 gem 'sqlite'
 gem 'activerecord'
-
-group :development do
-  gem 'byebug'
-end
+gem 'gosu'
 
 group :test do
   gem 'minitest'
