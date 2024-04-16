@@ -412,4 +412,6 @@ with mistake of math 50% we go ffrom uthopia to anntyuthopiia, by circle this is
 
 to make uthopia i think we must pick-up site O, where will be 3 womans, 1 young specialist of AI and she can devvelop site, 2 jurnaliist to comuunicate with goverment and people, 3 after 50 years math specialist, site must live donate on deposite, and these womans must took carte blanche by priincipe of maybe like circle told and the same carte blanche from ccompanies. Its must bbe liike O vatikan where task number 1 is our pentagram AI, circle told about avg brain we need any people brain help must all planet, and make my teaching more readeble and deliver to people i am ill by 5 ball i am normal on 2 when work 1 and ccan walk by goverments and speak with investors, the project o and pentagram must be free annd open source or how O will told, please make someone this start the brain of woman)), we must hurry the anndron colaider can make big blow or make teaching + Rusisan.
 
+logic of comunication O maybe all his words is methodik is adapted constitution of all and for all
+
 Good luck, and dont forget to click "Star" button!
