@@ -414,4 +414,6 @@ to make uthopia i think we must pick-up site O, where will be 3 womans, 1 young 
 
 logic of comunication O maybe all his words is methodik is adapted constitution of all and for all
 
+if 0+1=1 then 0*1=1 is true
+
 Good luck, and dont forget to click "Star" button!
