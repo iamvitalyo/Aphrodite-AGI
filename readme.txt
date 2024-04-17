@@ -417,4 +417,7 @@ logic of comunication O maybe all his words is methodik is adapted constitution 
 if 0+1=1 then 0*1=1 is true, explaine i need * on 2 one person with samurai sword, if i have sword is exist is not 0, if i dont have sword *0 then person will be still 1, this error and -a=b, x=a+b ==== -1=1, 0 = 1+1, and maybe another our math is 50% what circle fforgiive but math antyuthopiia, mathh of evil, math of evil drugs and food, there also our current AI on evil side, to fix
 make better our ai please look on math and circle and use self mind and logic.
 
+maybe if ouur computers iis 3 not binary, becouse 01 and space is 3, binary will be 1 and space, to make binary is also adaptive 
+its not big numbers is percentage where we write someething to something we write locanical for example 70% lived people and not write death we use only numbers to 100, need to think about this its will be coridor of balance of ciircle and we can hhanle very big data, just idea.
+
 Good luck, and dont forget to click "Star" button!
