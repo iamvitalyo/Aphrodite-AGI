@@ -414,6 +414,7 @@ to make uthopia i think we must pick-up site O, where will be 3 womans, 1 young 
 
 logic of comunication O maybe all his words is methodik is adapted constitution of all and for all
 
-if 0+1=1 then 0*1=1 is true
+if 0+1=1 then 0*1=1 is true, explaine i need * on 2 one person with samurai sword, if i have sword is exist is not 0, if i dont have sword *0 then person will be still 1, this error and -a=b, x=a+b ==== -1=1, 0 = 1+1, and maybe another our math is 50% what circle fforgiive but math antyuthopiia, mathh of evil, math of evil drugs and food, there also our current AI on evil side, to fix
+make better our ai please look on math and circle and use self mind and logic.
 
 Good luck, and dont forget to click "Star" button!
