@@ -419,10 +419,9 @@ its not big numbers is percentage where we write someething to something we writ
 
 i sick but if will be not so weak i will try, i thinnk that energy from circle is from box, need to connect lamp and wait maybe one day wwill be light if no pentagram 5 days, if give to pentagram energy elecricciity maybe is CPU with build in AI, need to try becouse O love laconically and byy O nature not giive to us or give we must take iit simple like O, all make all ffrom books when many  years math in base wrong on 50%, iin collage physic teacher told that infinity engine not exiists to see all this stupidity need to try. 
 
-if 0+1=1 then 0*1=1 is true, explaine i need * on 2 one person with samurai sword, if i have sword is exist is not 0, if i dont have sword *0 then person will be still 1, this error and -a=b, x=a+b ==== -1=1, 0 = 1+1, and maybe another our math is 50% what circle fforgiive but math antyuthopiia, mathh of evil, math of evil drugs and food, there also our current AI on evil side, to fix
-make better our ai please look on math and circle and use self mind and logic.
-
 table mendeleev wrong materia undder microscope have shapes for hexagon by teory total 5050 and if 6 she have 6 abilities and by balance by O we ccan know weiight and color and name iis symbol what we can drop in water and will be sound.
 
+if 0+1=1 then 0*1=1 is true, explaine i need * on 2 one person with samurai sword, if i have sword is exist is not 0, if i dont have sword *0 then person will be still 1, this error and -a=b, x=a+b ==== -1=1, 0 = 1+1, and maybe another our math is 50% what circle fforgiive but math antyuthopiia, mathh of evil, math of evil drugs and food, there also our current AI on evil side, to fix
+make better our ai please look on math and circle and use self mind and logic.
 
 Good luck, and dont forget to click "Star" button!
