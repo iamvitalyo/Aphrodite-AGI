@@ -424,4 +424,6 @@ table mendeleev wrong materia undder microscope have shapes for hexagon by teory
 if 0+1=1 then 0*1=1 is true, explaine i need * on 2 one person with samurai sword, if i have sword is exist is not 0, if i dont have sword *0 then person will be still 1, this error and -a=b, x=a+b ==== -1=1, 0 = 1+1, and maybe another our math is 50% what circle fforgiive but math antyuthopiia, mathh of evil, math of evil drugs and food, there also our current AI on evil side, to fix
 make better our ai please look on math and circle and use self mind and logic.
 
+if use logic of open box in box first open up box in this scenaria result will be 1 https://twitter.com/H0H0v/status/1781954943148015892/photo/1
+
 Good luck, and dont forget to click "Star" button!
