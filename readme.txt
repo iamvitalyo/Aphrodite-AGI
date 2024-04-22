@@ -426,4 +426,9 @@ make better our ai please look on math and circle and use self mind and logic.
 
 if use logic of open box in box first open up box in this scenaria result will be 1 https://twitter.com/H0H0v/status/1781954943148015892/photo/1
 
+x+x=2
+x2 = 2
+x = 2/2
+x = 1
+
 Good luck, and dont forget to click "Star" button!
