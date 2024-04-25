@@ -430,8 +430,7 @@ x+x=2
 x2 = 2
 x = 2/2
 x = 1
-x = 2 - 2
-x = 0
+
 
 ok const of O is 5 like pentagram and need to look that we know how +-*/= this also can be the numbers of pentagram
 
