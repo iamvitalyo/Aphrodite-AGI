@@ -440,6 +440,6 @@ couple days or weeks i dont remeber have problem with health. evil bacteria in c
 
 uthopia iis simple anyuthopia is difficult by O, if we handdle difficcult non pentagram ai we cann handle simple pentagram ai
 
-if pentagram head is 3 maybe our mind is one 3d symbol what make by circle self analize and analize of all, its simple we just must run this 3d symbol annd read and write to him 
+if pentagram head is 3 maybe our mind is one 3d symbol what make by circle self analize and analize of all, its simple we just must run this 3d symbol annd read and write to him, need to look that square 2d annd his 3d cube the same with pentagram and human mind 
 
 Good luck, and dont forget to click "Star" button!
