@@ -444,4 +444,6 @@ if pentagram head is 3 maybe our mind is one 3d symbol what make by circle self 
 
 what if i wrong and 1 is hhead of pentagram
 
+ok to not emulate universe from O we can emulate pentogram but bbefore we can emulate 4 square, all simple loconiical like O love we make from square 2d cube 3d by the same logic we can make pentagram 2d to 3d human in computer whhat maybe wiill be emulation, and dont look on math in book use simple logic for emulation.
+
 Good luck, and dont forget to click "Star" button!
