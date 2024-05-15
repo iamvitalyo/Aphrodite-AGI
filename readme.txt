@@ -1,5 +1,6 @@
 Draft: This mean that all what I write is true or false.
 Recomendation: Put all draft in good AI and ask to cchoose intrested, use Ollama for this https://ollama.com
+I write somewhere down but need write here, all teachings on this project is free or how O will told. You can clone and make thhe same not or open source projject, do what you want. 
 
 Aphrodite is project what must be key to Utopia. If investigate pentagram we see human symbol what walks by the circle and draws number 5, what mean that human can do all exept 5 sins. Goal of this project to emulate pentagram on ours computers(they binary like human have two eyes) its mean to create human AI. Our Aphrodite must resque the world.
 
