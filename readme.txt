@@ -448,4 +448,6 @@ ok to not emulate universe from O we can emulate pentogram but bbefore we can em
 
 need just use corridor of O of balance, revert of mind is emptiness, empty is simple then active mind difficult, by O we do nothing or create #AI #AGI, like with child we must run pentagram, she from sticks, like triangle 3 stick is 2, our computer can handle this @miramurati  s
 
+maybe with this method how i write before we can investigate the language of nature https://twitter.com/LukeSelfwalker/status/1790427693390926190
+
 Good luck, and dont forget to click "Star" button!
