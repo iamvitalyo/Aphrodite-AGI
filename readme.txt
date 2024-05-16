@@ -463,4 +463,6 @@ maybe we can send to O to binary script and make something what you think
 
 couple questiions, if circle have numabers each numaber have color and materi for example 1 is black dot materia of time, then question where revert of dot and what is revert, maybe 100 or 50 but its whhite color is light, by circle 100 moves 1 time 1 moves 2 sothing then 3 if 100 is light but maybe light 50 but if then light moves time, also we can stop the light with peach of paper so what can stop 1 time if light is 50 or 100 then more number less weight materia, maybe time 1 is unstopabel, something like radiation.    
 
+to write teorem on 100% like 1=1 we need to know all about O and about 1,2,3 symbols of O, now we have shit teorems. 
+
 Good luck, and dont forget to click "Star" button!
