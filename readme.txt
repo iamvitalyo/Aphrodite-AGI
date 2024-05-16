@@ -451,4 +451,6 @@ need just use corridor of O of balance, revert of mind is emptiness, empty is si
 
 maybe with this method how i write before we can investigate the language of nature https://twitter.com/LukeSelfwalker/status/1790427693390926190
 
+by O our life stream in one forward path, our life is just runed cycle drawing in space.
+
 Good luck, and dont forget to click "Star" button!
