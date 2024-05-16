@@ -453,4 +453,6 @@ maybe with this method how i write before we can investigate the language of nat
 
 by O our life stream in one forward path, our life is just runed cycle drawing in space.
 
+what if width of stick in nature is 1 then O or universe like binary but 1 what goes by circle and make 2 then 3 then 4 ....
+
 Good luck, and dont forget to click "Star" button!
