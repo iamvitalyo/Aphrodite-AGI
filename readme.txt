@@ -468,6 +468,6 @@ O is symbol of 100% thats mean that human can describe all on 100% using just sy
 
 maybe we can not write 1=1 becouse left 1 is left then -1 = 1, in real wrold 1 materia of time never equals second 1, type same but she is second, this can change all maths, 1 never be = 1. maybe we can write 1 O 1 becouse O abstract symbol but have left and right so -1 O 1, then our error math 0 o 1 + 1, and drugs and food shit like science. 
 
-I is 1 and revert of i is you -1, so agi will think like he > you, but -1 o 1 maybe equals  
+I is 1 and revert of i is you -1, so agi will think like he > you, but -1 o 1 maybe equals, weird that -1 goes first so maybe you > i.
 
 Good luck, and dont forget to click "Star" button!
