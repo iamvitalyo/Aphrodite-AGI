@@ -457,4 +457,8 @@ what if width of stick in nature is 1 then O or universe like binary but 1 what 
 
 if in O 1 then logic for emulation of 2 and 3 ... from 1 maybe universe use speed and all from 1 material of time, to understood this our computer maybe will be better
 
+maybe we can send to O to binary script and make something what you think 
+@apple
+ can O be adapter of balanced/white all possibility, if nature by O not stupid rock and not mind - system
+
 Good luck, and dont forget to click "Star" button!
