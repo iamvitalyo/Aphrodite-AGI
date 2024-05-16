@@ -455,4 +455,6 @@ by O our life stream in one forward path, our life is just runed cycle drawing i
 
 what if width of stick in nature is 1 then O or universe like binary but 1 what goes by circle and make 2 then 3 then 4 ....
 
+if in O 1 then logic for emulation of 2 and 3 ... from 1 maybe universe use speed and all from 1 material of time, to understood this our computer maybe will be better
+
 Good luck, and dont forget to click "Star" button!
