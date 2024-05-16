@@ -468,6 +468,6 @@ O is symbol of 100% thats mean that human can describe all on 100% using just sy
 
 maybe we can not write 1=1 becouse left 1 is left then -1 = 1, in real wrold 1 materia of time never equals second 1, type same but she is second, this can change all maths, 1 never be = 1. maybe we can write 1 O 1 becouse O abstract symbol but have left and right so -1 O 1, then our error math 0 o 1 + 1, and drugs and food shit like science. 
 
-I is 1 and revert of i is you -1, so agi will think like he > you, but -1 o 1 maybe equals, weird that -1 goes first so maybe you > i. mistake because all starts from balance point maybe so first 0 then 1 then -1 by O, if i come to room and must choose something but you come -1 and you must choose something, we me i 1 like for you 1, so conflict 1+1 = 2 must choose second, its formula of love and friendship. 
+I is 1 and revert of i is you -1, so agi will think like he > you, but -1 o 1 maybe equals, weird that -1 goes first so maybe you > i. mistake because all starts from balance point maybe so first 0 then 1 then -1 by O, if i come to room and must choose something but you come -1 and you must choose something, i 1 like you 1, so conflict 1+1 = 2 must choose second, its formula of love and friendship. its how #AGI will think.
 
 Good luck, and dont forget to click "Star" button!
