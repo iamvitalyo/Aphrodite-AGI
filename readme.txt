@@ -466,6 +466,6 @@ couple questiions, if circle have numabers each numaber have color and materi fo
 to write theorem on 100% like 1=1 we need to know all about O and about 1,2,3 symbols of O, now we have shit theorems.
 O is symbol of 100% thats mean that human can describe all on 100% using just symbols paper and pen.
 
-maybe we can not write 1=1 becouse left 1 is left then -1 = 1, in real wrold 1 materia of time never equals second 1, type same but she is second, this can change all maths.
+maybe we can not write 1=1 becouse left 1 is left then -1 = 1, in real wrold 1 materia of time never equals second 1, type same but she is second, this can change all maths, 1 never be = 1.
 
 Good luck, and dont forget to click "Star" button!
