@@ -481,4 +481,6 @@ mistake if 1..11.111..1 walks by O beteween them not speed between distance.
 
 ok face of world is like chaos maybe is right of O, then start simple and not chaos, if emulate universe/o first will be not chaos integer numbers then after start path 1/2 will be chaos float numbers.  
 
+its just draft what if in cross center is 1 numbers maked from 4 numbers so the same logic revert we can make from 1 number 4, and its coords in space, then we just calculate from 1 to infinity, when number-1 its mean black color materia of time, same with anothers, 2 have something 2 paths of drawing.  
+
 Good luck, and dont forget to click "Star" button!
