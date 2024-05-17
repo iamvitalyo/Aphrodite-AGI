@@ -477,6 +477,8 @@ so maybe true langauge is woman O man => unisex, past O future => now, so unisex
 
 maybe better to not use 100% in circle use 1/1 1/2 for example maybe can be 5/5 = 5 symbol of 5
 
-mistake if 1..11.111..1 walks by O beteween them not speed between distance. 
+mistake if 1..11.111..1 walks by O beteween them not speed between distance.
+
+ok face of world is like chaos maybe is right of O, then start simple and not chaos, if emulate universe/o first will be not chaos integer numbers then after start path 1/2 will be chaos float numbers.  
 
 Good luck, and dont forget to click "Star" button!
