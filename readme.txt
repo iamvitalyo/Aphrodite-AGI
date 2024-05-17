@@ -475,4 +475,6 @@ just life expiriance, so i am boy is 2 in pentagram i am stupid, but i dreamer b
 
 so maybe true langauge is woman O man => unisex, past O future => now, so unisex words of current time for example dont use had use have, must be something simple by O, becouse for prrogress all sience must be simple, we just use for had => before have. 
 
+maybe better to not use 100% in circle use 1/1 1/2 for example maybe can be 5/5 = 5 symbol of 5 
+
 Good luck, and dont forget to click "Star" button!
