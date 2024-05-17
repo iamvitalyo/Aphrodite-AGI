@@ -483,4 +483,6 @@ ok face of world is like chaos maybe is right of O, then start simple and not ch
 
 its just draft what if in cross center is 1 numbers maked from 4 numbers so the same logic revert we can make from 1 number 4, and its coords in space, then we just calculate from 1 to infinity, when number-1 its mean black color materia of time, same with anothers, 2 have something 2 paths of drawing.  
 
+if dot black andd round maybe is drak allposibility, by logic black to black, so this 1 is nolove what dont love evil, mayybe, its our I, so 1 make circle like water teach, nolove in start maybe make self no and make love/O/Univverse, by this methos we can investigate language of nature maybe the most hard or simple in start. 
+
 Good luck, and dont forget to click "Star" button!
