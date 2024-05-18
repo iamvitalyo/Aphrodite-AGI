@@ -487,6 +487,6 @@ if dot black andd round maybe is drak allposibility, by logic black to black, so
 
 we dont have a #AGI becouse by pentagram woman head and many developers is mans, by O balance underlie and stay is sit, this why womans have big beautiful ass, woman mind key to Pentagram => Pentagram AGI => O/Circle/Uthopia 
 
-so revert of O/Unverse is nothing, we can told nothing is not true when O/all and also symbol of true, so maybe we must think in this disasone. "Nothing is true, everything is permitted.". In this store balanced point is to be drop what makes O, when drop is 1 is I or Me or You.
+so revert of O/Unverse is nothing, we can told nothing is not true when O/all and also symbol of true, so maybe we must think in this disasone. "Nothing is true, everything is permitted.". In this store balanced point is to be drop what makes O, when drop is 1 is I or Me or You, coders from @Ubisoft know something.
 
 Good luck, and dont forget to click "Star" button!
