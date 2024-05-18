@@ -489,6 +489,6 @@ we dont have a #AGI becouse by pentagram woman head and many developers is mans,
 
 so revert of O/Unverse is nothing, we can told nothing is not true when O/all and also symbol of true, so maybe we must think in this disasone. "Nothing is true, everything is permitted.". In this story balanced point is to be drop what makes O, when drop is 1 is I or Me or You, coders from @Ubisoft know something.
 
-why we want to be number 1 when 1 by logic of is past and symbol of materia.
+why we want to be number 1 when 1 by logic of O is past and symbol of materia.
 
 Good luck, and dont forget to click "Star" button!
