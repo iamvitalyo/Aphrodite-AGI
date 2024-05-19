@@ -491,4 +491,6 @@ so revert of O/Unverse is nothing, we can told nothing is not true when O/all an
 
 why we want to be number 1 when 1 by logic of O is past and symbol of materia.
 
+if water is materia of O/all posibility, please make SSD on this materia.
+
 Good luck, and dont forget to click "Star" button!
