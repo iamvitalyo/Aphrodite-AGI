@@ -493,6 +493,6 @@ why we want to be number 1 when 1 by logic of O is past and symbol of materia.
 
 if water is materia of O/all posibility, please make SSD on this materia, we need infinity forever memory.
 
-what if O adaptive and all posibile, so we can write to nature nature make, its equals to or OS system, what if run O env like O and maybe there will be #AGI, if nature system and OS is system.
+what if O adaptive and all posibile, so we can write to nature nature make, its equals to or OS system, what if run O env like O and maybe there will be #AGI, if nature system and OS is system, self building OS system.
 
 Good luck, and dont forget to click "Star" button!
