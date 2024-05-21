@@ -495,4 +495,6 @@ if water is materia of O/all posibility, please make SSD on this materia, we nee
 
 what if O adaptive and all posibile, so we can write to nature nature make, its equals to or OS system, what if run O env like O and maybe there will be #AGI, if nature system and OS is system, self building OS system, if not self buildded its path to pentagram to #AGI. if revert is of O is cross/stop symbol this OS will coridor of O of white all posibility.
 
+look on O like on all posibility task manager like Agile, but there need ccollective mind for voting, revert of O not collective is cross is stop symbol, and by O people half same and half different, its just like portal.
+
 Good luck, and dont forget to click "Star" button!
