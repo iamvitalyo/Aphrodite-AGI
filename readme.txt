@@ -499,4 +499,6 @@ look on O like on all posibility task manager like Agile, but there need collect
 
 if computer walk by cycle by O, and ppentagram in O we can run she on our computer how? we must look how and why pentagram in 5 position so we must catch connection pentagram with O and make the same connection with computer cycle, with O
 
+if revert of O is cross maybe O dont love cross maybe we dont need to use x, y coords and we need use gradus of path and size
+
 Good luck, and dont forget to click "Star" button!
