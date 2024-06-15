@@ -503,4 +503,6 @@ if revert of O is cross maybe O dont love cross maybe we dont need to use x, y c
 
 we need to use for seconds symbols and another calculatin 2/1 = first symbol of 2
 
+between man and woman ladyboy maybe they main
+
 Good luck, and dont forget to click "Star" button!
