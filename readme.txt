@@ -505,4 +505,8 @@ we need to use for seconds symbols and another calculatin 2/1 = first symbol of 
 
 between man and woman ladyboy maybe they main
 
+3d is not 3d 3d is our d3, just draw on dark half white and explaine if cordon betwn this 2 is not 3 or 3
+
+stick 2 we take 5 balls and center balls make move this teory of full path and end, so maybe we must do all on 100 percent becouse O is stick, maybe for run O we must do first step or cycle on 100 percent 
+
 Good luck, and dont forget to click "Star" button!
