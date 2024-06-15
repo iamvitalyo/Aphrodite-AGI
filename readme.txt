@@ -501,4 +501,6 @@ if computer walk by cycle by O, and ppentagram in O we can run she on our comput
 
 if revert of O is cross maybe O dont love cross maybe we dont need to use x, y coords and we need use gradus of path and size
 
+we need to use for seconds symbols and another calculatin 2/1 = first symbol of 2
+
 Good luck, and dont forget to click "Star" button!
