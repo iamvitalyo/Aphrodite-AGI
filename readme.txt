@@ -513,7 +513,7 @@ stick 2 we take 5 balls and center balls make move this teory of full path and e
 2-1=1
 2-0.5=1
 
-sorry i a little weomg about our math but stil we can told -1 o 1
+sorry i a little weomg about our math but stil we can told -1 o 1 maybe normal formula of something always must return 0
 
 
 Good luck, and dont forget to click "Star" button!
