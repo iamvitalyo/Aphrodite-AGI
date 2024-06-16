@@ -515,7 +515,7 @@ stick 2 we take 5 balls and center balls make move this teory of full path and e
 
 sorry i a little weomg about our math but stil we can told -1 o 1 maybe normal formula of something always must return 0
 
-we can use our 3d to emulate but we can also emulate in our 2d what is circle 3d
+we can use our 3d to emulate but we can also emulate in our 2d what is circle 3d when head of 5 is 3
 
 
 Good luck, and dont forget to click "Star" button!
