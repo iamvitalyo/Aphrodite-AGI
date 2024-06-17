@@ -517,5 +517,7 @@ sorry i a little weomg about our math but stil we can told -1 o 1 maybe normal f
 
 we can use our 3d to emulate but we can also emulate in our 2d what is circle 3d when head of 5 is 3
 
+ok revert of black white together is grayy and revert of gray is ccolor of shit anthyuthopia
+
 
 Good luck, and dont forget to click "Star" button!
