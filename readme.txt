@@ -519,5 +519,7 @@ we can use our 3d to emulate but we can also emulate in our 2d what is circle 3d
 
 ok revert of black white together is grayy and revert of gray is ccolor of shit anthyuthopia
 
+if head of ppentagram in posiition of O in 5
+
 
 Good luck, and dont forget to click "Star" button!
