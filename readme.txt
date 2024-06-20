@@ -521,5 +521,7 @@ ok revert of black white together is grayy and revert of gray is ccolor of shit 
 
 if head of ppentagram in posiition of O in 5
 
+if circle adaptive for anything we can run him on our computers and there can be oOS with our ai, to do this need investigat how 1 drop make circle when 1 is dot and maybe o have const 100 so we can told how much 1 in 1-s and what will be if drop this 1-s in 1 on flat how will be O and we do the same on our ccomputers, start must be simple like 1 out of circle not balancced 1 seed make apple tree or human, we need just start O on our computers then nature/logic will make half  
+
 
 Good luck, and dont forget to click "Star" button!
