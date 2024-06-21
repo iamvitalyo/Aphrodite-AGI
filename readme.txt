@@ -527,6 +527,6 @@ if head of 5 look in O balance and O system O also understood our language maybe
 
 if 2d O have teachhings for make uthopia we can put balanedd O in O in O levels will be 3d science of 100 percennt
 
-so 1 make O from stick binary symbbol left/right is 2 have / is 3 this / have up/down is 4... also we know 1 have 1 balanced symbol 2 have 2 ... and we muust emulate this ddrop dividing on our ccomputers to start O from 1
+so 1 make O from stick binary symbbol left/right is 2 have / is 3 this / have up/down is 4... also we know 1 have 1 balanced symbol 2 have 2 ... and we muust emulate this ddrop dividing on our ccomputers to start O from 1, if we run nature on 2d we can speak i think with this nature/system/o and there can be pentagram ai.
 
 Good luck, and dont forget to click "Star" button!
