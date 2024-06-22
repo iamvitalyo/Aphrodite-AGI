@@ -539,4 +539,6 @@ we make black and give him white we have gray we revert off gray have shit color
 
 if circle logic of all and adaptive why nobody dont run one algoritm of love on computers
 
+i image O adapter we send by usb requst and request comes by O and return if left/right requst will be response intuitive like O, if this not connection with nature and result just revert of request we put balanced ccirccles with O/rim in same and test
+
 Good luck, and dont forget to click "Star" button!
