@@ -534,6 +534,4 @@ so 1 make O from stick binary symbbol left/right is 2 have / is 3 this / have up
 i think also about adaptive about cup where you put water from bucket with cup will be ok so const in not 100 also maybe ok also circle table in center cup so from any point you can takke thhis cup, so maybe ccan 1 of method can be start of pentagram in balancce between 50/51 we send us in revert point what if we will send with this numbers data for example 50/19/51 
 
 
-
-
 Good luck, and dont forget to click "Star" button!
