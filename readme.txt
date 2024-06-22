@@ -539,6 +539,6 @@ we make black and give him white we have gray we revert off gray have shit color
 
 if circle logic of all and adaptive why nobody dont run one algoritm of love on computers
 
-i image O adapter we send by usb requst and request comes by O and return if left/right requst will be response intuitive like O, if this not connection with nature and result just revert of request we put balanced ccirccles with O/rim in same and test, maybe need put in him 1/dot 2/1-stick ... and maybe this will be normal/moment ccomputer, when noreality O reality and there will be pentagram AI.
+i image O adapter we send by usb requst and request comes by O and return if left/right requst will be response intuitive like O, if this not connection with nature and result just revert of request we put balanced ccirccles with O/rim in same and test, maybe need put in him 1/dot 2/1-stick ... and maybe this will be normal/moment ccomputer, when noreality O reality and there will be pentagram AI, what if O adaptive and just fire and metal will make this computer we emulate 1 to O with fiire and metal.
 
 Good luck, and dont forget to click "Star" button!
