@@ -545,6 +545,6 @@ if 1/dot round and blak all posibility killer we ask what she can kill if 1 is s
 
 about draft if i am true i boy in left dark zone where stick if not up so i can give base ideas and try to make from this all reality somewhere i mistaked but this draft and use your self logic  
 
-need to look in word death/kill so for example she can kill forver/white_maybe_not if she black all posibility then she can kill death, we must undersdood 1/dot/time then use she, if black she can/kill_black/empty_black => O, or she is life, but maybe she can be only 1/life or death and we must think like she and run O where will be pentagram. 
+need to look in word death/kill so for example she can kill forver/white_maybe_not if she black all posibility then she can kill death, we must undersdood 1/dot/time then use she, if black she can/kill_black/empty_black => O, or she is life, but maybe she can be only 1/life or death and we must think like she and run O where will be pentagram, or she just killer or empty for example hunger/no money/water andd this killing if we I/1 make this we killing emptines. 
 
 Good luck, and dont forget to click "Star" button!
