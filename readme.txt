@@ -555,6 +555,6 @@ all simple all what i do is to try explaine some logic, maybe better exxplain wo
 
 if logic is balance we need train self logic maybe balanced point is montain + snow/water + snowboard/twintip will fisical training of balance when brain is also fisial
 
-by logic this draft is not O but like stick move, need just 3 heads of pentagram and all/love will be fast, so need just think how make O from sticck
+by logic this draft is not O but like stick move, need just 3 heads of pentagram and all/love will be fast, so need just think how make O from sticck, i see also adapptive/% and balance like test and path to true, so if you touch in one point anothers also will be touched and you told that static/norma is balance 50/50 and walk this ccoridor and investigate what from left what right, we can build true finder/o/all  
 
 Good luck, and dont forget to click "Star" button!
