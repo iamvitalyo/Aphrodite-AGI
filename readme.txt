@@ -561,7 +561,7 @@ by logic this draft is not O but like stick move, need just 3 heads of pentagram
 then spin divide/half O method 1-[50, 25], 2-[13, 25], 3-[25, 25], 4-[28, 25] 
 or make total divide/dot divide 1-[[50,50], [25,25]].......
 2 numbers is good becouse all like from 2 then maybe must be up we can 2 numbers mix with 2 colors for example if pentagram balance 
-maybe balanced light color can be green we can at work look on colors and shapes and look where want to be mind. O nature draw on 2d i think 2d enough for start normal human AI.
+maybe balanced light color can be green we can at work look on colors and shapes and look where want to be mind. O nature draw on 2d i think 2d enough for start normal human AI. also if we pick cup O system connection must be O or 1/dot/ball 
 
 
 Good luck, and dont forget to click "Star" button!
