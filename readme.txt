@@ -551,4 +551,6 @@ this just maybes and this maybes not ideal, so look on circle O/now and get befo
 
 between materia and nothing colors maybe need just play with color - color is word, and colors have numbers and shapes.
 
+all simple all what i do is to try explaine some logic, maybe better exxplain word logic, maybe is battle of -/+ or this result of battle, if battle we must know rule of this battle and investigate.
+
 Good luck, and dont forget to click "Star" button!
