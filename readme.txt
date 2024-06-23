@@ -557,7 +557,11 @@ if logic is balance we need train self logic maybe balanced point is montain + s
 
 by logic this draft is not O but like stick move, need just 3 heads of pentagram and all/love will be fast, so need just think how make O from sticck, i see also adapptive/% and balance like test and path to true, so if you touch in one point anothers also will be touched and you told that static/norma is balance 50/50 and walk this ccoridor and investigate what from left what right, we can build true finder/o/all  
 
-[0,50], [25, 50], [50, 50], [75, 50] - its coords of cross in circle, [gradus%, distance%]
-then spin divide/half O method [50, 25], [13, 25], [25, 25], [28, 25]
+1-[0,50], 2-[25, 50], 3-[50, 50], 4-[75, 50] - its coords of cross in circle, [gradus%, distance%]
+then spin divide/half O method 1-[50, 25], 2-[13, 25], 3-[25, 25], 4-[28, 25] 
+or make total divide/dot divide 1-[[50,50], [25,25]].......
+2 numbers is good becouse all like from 2 then maybe must be up we can 2 numbers mix with 2 colors for example if pentagram balance 
+maybe balanced light color can be green we can at work look on colors and shapes and look where want to be mind.
+
 
 Good luck, and dont forget to click "Star" button!
