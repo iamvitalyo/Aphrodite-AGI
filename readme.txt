@@ -555,4 +555,6 @@ all simple all what i do is to try explaine some logic, maybe better exxplain wo
 
 if logic is balance we need train self logic maybe balanced point is montain + snow/water + snowboard/twintip will fisical training of balance when brain is also fisial
 
+by logic this draft is not O but like stick move, need just 3 heads of pentagram and all/love will be fast
+
 Good luck, and dont forget to click "Star" button!
