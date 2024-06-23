@@ -551,6 +551,6 @@ this just maybes and this maybes not ideal, so look on circle O/now and get befo
 
 between materia and nothing colors maybe need just play with color - color is word, and colors have numbers and shapes.
 
-all simple all what i do is to try explaine some logic, maybe better exxplain word logic, maybe is battle of -/+ or this result of battle, if battle we must know rule of this battle and investigate and teach our AI to investigate, when O is all also logic of all, so we must understood what is logic what is O what is love. logic key to all and number 1 of science then if number 1 mayybe need to investiigate 1 logic and one like kill self and diivivde but also 1 not divivide so maybe something she ddivide. logic love balance teach self AI logic of balance, to split gray on black and white or + them to grey
+all simple all what i do is to try explaine some logic, maybe better exxplain word logic, maybe is battle of -/+ or this result of battle, if battle we must know rule of this battle and investigate and teach our AI to investigate, when O is all also logic of all, so we must understood what is logic what is O what is love. logic key to all and number 1 of science then if number 1 mayybe need to investiigate 1 logic and one like kill self and diivivde but also 1 not divivide so maybe something she ddivide. logic love balance teach self AI logic of balance, to split gray on black and white or + them to grey, to stand incenter of room when need run
 
 Good luck, and dont forget to click "Star" button!
