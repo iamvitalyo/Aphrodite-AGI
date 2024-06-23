@@ -563,5 +563,7 @@ or make total divide/dot divide 1-[[50,50], [25,25]].......
 2 numbers is good becouse all like from 2 then maybe must be up we can 2 numbers mix with 2 colors for example if pentagram balance 
 maybe balanced light color can be green we can at work look on colors and shapes and look where want to be mind. O nature draw on 2d i think 2d enough for start normal human AI. also if we pick cup O system connection must be O or 1/dot/ball 
 
+also look in stick, stick/2 have enter, we can told 1 moves and make stick then this stick make O infinity stick maybe we must juust sppin stick like jupiter wheel balanced spin.
+
 
 Good luck, and dont forget to click "Star" button!
