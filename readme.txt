@@ -565,6 +565,22 @@ maybe balanced light color can be green we can at work look on colors and shapes
 
 also look in stick, stick/2 have enter, we can told 1 moves and make stick then this stick make O infinity stick maybe we must juust sppin stick like jupiter wheel balanced spin and this maybe will be run of O. someone maybe make this andd call self God Zeus maybe Tesla. so 1 revert is 51... them between/avg is 26 ... revert of 26 ...
 
+first we make alot of shit so i write:
+o sorry
+o sorry
+o sorry
+o sorry
+o sorry
+
+then its our law:
+
+o our law
+o our law
+o our law
+o our law
+o our law
+
+
 if nature O all know i just wriite 3 times, maybe need wait 1 day or years 
 O please run this project 
 O please run this project
@@ -572,6 +588,6 @@ O please run this project
 O please run this project
 O please run this project
 
-
+o love no_reality/reality so = virtualiity maybe here words more expensive then on paper and all can help
 
 Good luck, and dont forget to click "Star" button!
