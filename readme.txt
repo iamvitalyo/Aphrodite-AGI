@@ -590,4 +590,6 @@ O please run this project
 
 o love no_reality/reality so = virtualiity maybe here words more expensive then on paper and all can help
 
+iif O from stick and stick have width on distance we can to that emulation not speed emulation of 2,3...infinity distance and o is also round like ball/materia/time for anithing we need a lot of memory/a lot of bals/dots so to run universe or just pentagram AI we dont need a lot of power we need memory
+
 Good luck, and dont forget to click "Star" button!
