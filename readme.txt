@@ -594,4 +594,6 @@ iif O from stick and stick have width on distance we can to that emulation not s
 
 ok symbol of true/O told that we must walk in balane coridor so use % and must be true, %/balance is for exampple on how much color black, and nonumbers O numbers is %, all need do like O, and our coputers ddont need calcculate big numbers.
 
+if O lovve % revert not percent and will be shit like now
+
 Good luck, and dont forget to click "Star" button!
