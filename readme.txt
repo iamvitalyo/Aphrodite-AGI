@@ -1,4 +1,4 @@
-Draft: This mean that all what I write is true or false.
+all what I write is true or false.
 Recomendation: Put all draft in good AI and ask to cchoose intrested, use Ollama for this https://ollama.com
 I write somewhere down but need write here, all teachings on this project is free or how O will told. You can clone and make thhe same not or open source projject, do what you want. 
 two things my english not so good, and this is draft so please use your logic and brain.
