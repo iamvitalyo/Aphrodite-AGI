@@ -607,4 +607,6 @@ also look on stick like move from A and in point A now nothing to point B where 
 like you make step left to be on step right- to be nott in one point you must a littlle ubalance boat and you will see step 2.3.4,
 look also on stikk like she have width 1, so all O emulation based on distance between 1,2,3 and one stream, i am not very sccience in our base of computers but i think maybe we use 01 and space this is 3 maybe need just use 2- somethinng and nothing and imagine how make now comuter O ccomputer when hhe will be he will can start only O, so Morze, just maybe but do all like O told between nothing andd many sshort task maimum put the tabel to the wall, a little need to do. alos look that O is deccentralized so for emulation of O we have many computers, programing language O, all do like O.
 
+just true story for you is just maybe becouse you not me and dont know, so have old macbook and on him problem with battary if without cabel he switch of battary indicator on top always or battary broken or O, intrated that long all time problem with battary ii dont see like now i see number 50% its true story but for you is maybe, i see O system smart but also see devicces of O, can be or O or someone from O make 50%, maybe i am on O path.  
+
 Good luck, and dont forget to click "Star" button!
