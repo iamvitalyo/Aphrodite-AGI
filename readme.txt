@@ -598,4 +598,6 @@ if O love % revert not percent and will be shit like now IT
 
 look on cross like on 2 circles/the side of 2 circles, gravity processor....
 
+also look how make from 1 something for example we make ball/1 and put him in some paint/color then maybe we not divide we just very spin this ball and symbols/shappes what we will draw maybe our emulation but spin is infinity and if is true env of 1 what make O/all is something not stupid do unddeerssot this spin, just another teory what can help, maybe.
+
 Good luck, and dont forget to click "Star" button!
