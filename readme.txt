@@ -596,6 +596,6 @@ ok symbol of true/O told that we must walk in balane coridor so use % and must b
 
 if O love % revert not percent and will be shit like now IT
 
-look on croos like on 2 circles/the side of 2 circles
+look on croos like on 2 circles/the side of 2 circles, gravity processor....
 
 Good luck, and dont forget to click "Star" button!
