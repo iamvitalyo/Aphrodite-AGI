@@ -601,6 +601,6 @@ look on cross like on 2 circles/the side of 2 circles, gravity processor....
 also look how make from 1 something for example we make ball/1 and put him in some paint/color then maybe we not divide we just very spin this ball and symbols/shappes what we will draw maybe our emulation but spin is infinity and if is true env of 1 what make O/all is something not stupid do unddeerssot this spin, just another teory what can help, maybe.
 
 more simple we need make 1 => O, is see this kile 1 == 100%, so we make infinity then need make spin, maybe 50/50 => 25/75 ...
-but for this needd good mamory for computer i will try when health will be ok cant foccus.
+but for this needd good mamory for computer i will try when health will be ok cant foccus, result we make infinity is 100% then need spin or divvide..
 
 Good luck, and dont forget to click "Star" button!
