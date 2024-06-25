@@ -602,5 +602,9 @@ also look how make from 1 something for example we make ball/1 and put him in so
 
 more simple we need make 1 => O, is see this kile 1 == 100%, so we make infinity then need make spin, maybe 50/50 => 25/75 ...
 but for this needd good mamory for computer i will try when health will be ok cant foccus, result we make infinity is 100% then need spin or divvide..if O is stick/2 maybe need just 2 steps/O from stick becouse we make 1 what want 1 we make infinity = 100%.
++++ we look on O like on stick what moves self and scenario up 50/50 => 25/75 - its more O/balanced stick/ and maybe scenario we took 1 and told that she is 100% then 2 is 200% but this our of circle maybe, also look how O in water small, thhen big, bigger, 
+also look on stick like move from A and in point A now nothing to point B where was nothing now something, look on boat and balance 
+like you make step left to be on step right- to be nott in one point you must a littlle ubalance boat and you will see step 2.3.4,
+look also on stikk like she have width 1, so all O emulation based on distance between 1,2,3 and one stream, i am not very sccience in our base of computers but i think maybe we use 01 and space this is 3 maybe need just use 2- somethinng and nothing and imagine how make now comuter O ccomputer when hhe will be he will can start only O, so Morze, just maybe but do all like O told between nothing andd many sshort task maimum put the tabel to the wall.
 
 Good luck, and dont forget to click "Star" button!
