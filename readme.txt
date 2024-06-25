@@ -611,4 +611,6 @@ just true story for you is just maybe becouse you not me and dont know, so have 
 
 also look that circle make 1 and love %, 1% time/money/people work can make O/Uthopia, so power of companies/corporation/goverment 1% of their power can make O/Uthopia/Love from sratch in period of time between spend time and not spend moment but moment also balance and can be half cycle day/year i think year more reality even if 1.
 
+all can be undefited becouse empty + all = all, all + empty = all.
+
 Good luck, and dont forget to click "Star" button!
