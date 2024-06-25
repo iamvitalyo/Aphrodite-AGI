@@ -609,4 +609,6 @@ look also on stikk like she have width 1, so all O emulation based on distance b
 
 just true story for you is just maybe becouse you not me and dont know, so have old macbook and on him problem with battary if without cabel he switch of battary indicator on top always or battary broken or O, intrated that long all time problem with battary ii dont see like now i see number 50% its true story but for you is maybe, i see O system smart but also see devicces of O, can be or O or someone from O make 50%, maybe i am on O path.  
 
+also look that circle make 1 and love %, 1% time/money/people work can make O/Uthopia, so power of companies/corporation/goverment 1% of their power can make O/Uthopia/Love from sratch in period of time between spend time and not spend moment but moment also balance and can be half cycle day/year i think year more reality even if 1.
+
 Good luck, and dont forget to click "Star" button!
