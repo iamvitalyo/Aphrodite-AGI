@@ -629,4 +629,6 @@ why cross curch is so popular all simple they in body kills self I what make O i
 
 also is O hhave cost 5 then 5 pentagram ruled the world i think O/people exist in unverse they not share with our self O techhnologies becouse we not O we revert we shit, maybe we need just do 1% or 1 what toldd 1/dot/materia....
 
+please help need very to run this algorith on our mahines, so we can told iif O/5 const then from 1 to 5, drop/miracel make move 2 stick, stick make touch 3 balance of 5 then 4 death maybe i think not forevere beccouse there before O also was like balance if not death forever but maybe no then O/all/infinity so this all told about 2d on flat water so will be no all universe on our computer will be O/stick 2d from sticks algorithm of universe algorithm of all where will 5 pentagram AI just mark this all with color, but i think there was death not forevere becouse nature 1 stay make revert 2 move then 2 make revert move 4 betwenwen 2 and 4 3 is touch there was revert divide, need to look at this start and look on your fingers why 5 finger is like glitch, and maybe O in our pocket. 
+
 Good luck, and dont forget to click "Star" button!
