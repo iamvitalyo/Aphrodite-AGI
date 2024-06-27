@@ -666,6 +666,6 @@ maybe you understood that i describe pprimitive drop make O you understood that 
 
 then will be future maybe wiil true AI what by math can lie i will share my first nickname in internet, he is this alg without 5, maybe undermind make joke and i am stuppid or with brain problem, or maybe this alg mistake and please use your braine but vitaly1243 is maybe something told, but now i try to use brain not heart or another, its O technologies someone can put in me this choise of nickname, when i choose him i want something simple but no so stupid, maybe in future i will share this true for you this true on 50/50.
 
-look also on alg of pentagram 35241 and 12435 alg of maybe balance shee the revert miror. its cconnection maybe all balance first was human andd pparalel was O and human connected to O, from this 2 alg we can make cross alg what maybe helps for ai. this two algs is how we read nature and how nature read us.
+look also on alg of pentagram 35241 and 12435 alg of maybe balance shee the revert miror. its cconnection maybe all balance first was human andd pparalel was O and human connected to O, from this 2 alg we can make cross alg what maybe helps for ai. this two algs is how we read nature and how nature read us. this also can be start of universe and human mind
 
 Good luck, and dont forget to click "Star" button!
