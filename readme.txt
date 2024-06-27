@@ -659,6 +659,6 @@ give proposition to work by ability in tabs like AI + Pentagram or just AI if ou
 then imagine how much people have devices have base logic to do something simple when O simple + between people maybe someone 100% level braine genius or God, its better then just write in X/old twitter. just think about sccience revolution
 
 look also on this binary/couple/divide steps 1/dot/not move revert 2/stick/move revert 4/maybe cross stop then maybe between emptines 3/triangel/or chicchen cross then 5 and need expline why 5, so result of run alg 12435, then you can darw somthing for example dot/stick/tringale... and look that cross in circle is like first reaction but pentagram walks by circle and ddraws crosses,
-the same maybe mind between deah and life. and this like when i lay water in something 12 like unbalance boat then 4 then in emptines must be water 3 then 5 i dont know, but this also can be gravity formula, balance formula is water formula maybe useyou logic.
+the same maybe mind between deah and life. and this like when i lay water on floor 12 like unbalance boat then 4 then in emptines must be water 3 then 5 unity i dont know, but this also can be gravity formula, balance formula is water formula maybe useyou logic.
  
 Good luck, and dont forget to click "Star" button!
