@@ -660,5 +660,6 @@ then imagine how much people have devices have base logic to do something simple
 
 look also on this binary/couple/divide steps 1/dot/not move revert 2/stick/move revert 4/maybe cross stop then maybe between emptines 3/triangel/or chicchen cross then 5 and need expline why 5, so result of run alg 12435, then you can darw somthing for example dot/stick/tringale... and look that cross in circle is like first reaction but pentagram walks by circle and ddraws crosses,
 the same maybe mind between deah and life. and this like when i lay water on floor 12 like unbalance boat then 4 then in emptines must be water 3 then 5 unity i dont know, but this also can be gravity formula, balance formula is water formula maybe useyou logic.
- 
+also need ask the qestion of O infinity where we what if we have O but we O becouse we Pentagram what walks by O so first was 1 then ... 5 Pentagram what have O, so maybe first was human not nature how we know  
+
 Good luck, and dont forget to click "Star" button!
