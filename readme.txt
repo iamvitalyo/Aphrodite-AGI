@@ -648,6 +648,6 @@ then 4 cross and need think how rom 3 is 4
 then 5/O/ininity
 or just look on pentagram becouse if start calculation first balanced symbol of O is 1 its ok then was 2/2 then then 3/2 triangel
 then intrested that 4 also square but O choose cross becouse he lookk in coridor of balance maybe, then maybe 5 pentagram, look also with this ppoint of vview also look on colors of this symbols also can help, maybe first stabel O was Pentagram then O/universe
-just maybe
+just maybe, look how drop make O in water how much ccircles ask why.
 
 Good luck, and dont forget to click "Star" button!
