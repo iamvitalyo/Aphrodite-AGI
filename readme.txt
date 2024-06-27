@@ -666,6 +666,6 @@ maybe you understood that i describe pprimitive drop make O you understood that 
 
 then will be future maybe wiil true AI what by math can lie i will share my first nickname in internet, he is this alg without 5, maybe undermind make joke and i am stuppid or with brain problem, or maybe this alg mistake and please use your braine but vitaly1243 is maybe something told, but now i try to use brain not heart or another, its O technologies someone can put in me this choise of nickname, when i choose him i want something simple but no so stupid, maybe in future i will share this true for you this true on 50/50.
 
-look also on alg of pentagram 35241 and 12435 alg of maybe balance shee the revert miror.
+look also on alg of pentagram 35241 and 12435 alg of maybe balance shee the revert miror. its cconnection 
 
 Good luck, and dont forget to click "Star" button!
