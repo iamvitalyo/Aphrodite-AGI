@@ -1,5 +1,5 @@
 all what I write is true or false, and this draft is a little dirty please use your own logic or own AI-s.
-to think that i will do all one is stupid becouse i have problem with health and dont know what be tomorow, please clone and make your own project or help here how you can.
+to think that i will do all one is stupid becouse i have problem with health and dont know what be tomorow, please clone and make your own project or help here how you can, or share idea between people who have abilities to make success of O.
 Recomendation: Put all draft in good AI and ask to cchoose intrested, use Ollama for this https://ollama.com
 I write somewhere down but need write here, all teachings on this project is free or how O will told. You can clone and make thhe same not or open source projject, do what you want. 
 two things my english not so good, and this is draft so please use your logic and brain.
