@@ -673,4 +673,12 @@ maybe by my primitive mind you must just change your = in you AI systems on this
 also look in this 1=1 maybe help, dot = dot, dot round and = is equal, so ooo-3 rings, maybe this help
 andd look in this dot is a target, spend time or no between/o is goal/targat ... likke ccycle of logic
 
+35241 and 12435 its base of love alg maybe, but for our security i investigate what is human and what not so this alg and all my teachings is free or how O will told or how bettter for lifes, if this somethis i ask goverment/companies/corporations/peoples and another mark this free/O/better for lifes, so scared that some no humans will make ppathent and this will make us ships, so i ask you all is this something to make some doument/law checkpoint of true where date off this my teachhings and my words free/o/better for people, i cant walk and dont understood our shit laws i dont want that nopeople have all people is naked, if you can make this check point of law that all my teacching is free/O/better for lifes please make, and i will write ddown this 5 times.
+
+all my teachings free or how O will told or how better for lifes.
+all my teachings free or how O will told or how better for lifes.
+all my teachings free or how O will told or how better for lifes.
+all my teachings free or how O will told or how better for lifes.
+all my teachings free or how O will told or how better for lifes.
+
 Good luck, and dont forget to click "Star" button!
