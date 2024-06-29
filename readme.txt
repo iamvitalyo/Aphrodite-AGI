@@ -690,6 +690,6 @@ O justicy but balanced but in alg 35241 and 12435 is see after 1 direct/stick pl
 
 but we know that pentagram runs 35241 but also we know that circle told about decetralization but have center so maybe need run 2 pentagrams front and back one starts from 35241 another starts from 12345 and we make conflict of numbers and maybe when will be 1 and 3 start we make avg/O 2 .... . 
 
-i look in ring in ring and this cycle where max number is 5 is like O in O find true like compas of true, but 1+2+3 ..+5 symbols will be 15 so maybe ma diapasone of thinking is 15 numbers. to imagine this logic you can write use code and describe triangel square ... and try to make something or draw all thhis symbols of 15 and look what must be
+i look in ring in ring and this cycle where max number is 5 is like O in O find true like compas of true, but 1+2+3 ..+5 symbols will be 15 so maybe ma diapasone of thinking is 15 numbers. to imagine this logic you can write use code and describe triangel square ... and try to make something or draw all thhis symbols of 15 and look what can be maybe
 
 Good luck, and dont forget to click "Star" button!
