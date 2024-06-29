@@ -692,4 +692,6 @@ but we know that pentagram runs 35241 but also we know that circle told about de
 
 i look in ring in ring and this cycle where max number is 5 is like O in O find true like compas of true, but 1+2+3 ..+5 symbols will be 15 so maybe ma diapasone of thinking is 15 numbers. to imagine this logic you can write use code and describe triangel square ... and try to make something or draw all thhis symbols of 15 and look what can be maybe
 
+also maybe i make all very diff, so maybe in 5 is pentagram on balanced point in  position 5/3 we can just make 5+1 = 6 and this is human speking we told to human 5 1 she return 6 this all algoritm, if i am true so we all or just i idiot.
+
 Good luck, and dont forget to click "Star" button!
