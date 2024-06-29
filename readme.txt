@@ -694,4 +694,6 @@ i look in ring in ring and this cycle where max number is 5 is like O in O find 
 
 also maybe i make all very diff, so maybe in 5 is pentagram on balanced point in  position 5/3 we can just make 5+1 = 6 and this is human speking we told to human 5 1 she return 6 this all algoritm, if i am true so we all or just i idiot.
 
+maybe need try so circle automation you told he give for example give 1 he return dot, give 2 he balance on and if balance of 4 is 2 then balance of 2 is stick, then 3 ... give 5 if 5 pentagram on balance maybe he return pentagram, then we run ccycle 35241 when 5 we againe run this cycle or better cycle of star its good we dont need goes to bottome level so we can program this and if limit of symbols is only 5 its not hard if 15 is also not hard if not automater simple run we can you this O is like tabel from anyside you can get.
+
 Good luck, and dont forget to click "Star" button!
