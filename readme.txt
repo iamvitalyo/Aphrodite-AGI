@@ -719,6 +719,6 @@ need also look in just number 35241 this diapasone of numbers 1..35241 maybe our
 
 so by teory of 1 in water 12435, first dot not move revert 2 is move stick revert of 2 is cross stop then intiive 3 somethis like tocuhing then 5 circle, revert of 12435 is 35241 - touch maybe trinagel, 5 is cicrlcce maybe also penatgarm the 2 stick move then cross then 1 dot/materia/record/divide/memory/time, so we make touch generate numbers on 1 we record this numbers, maybe, so i think this all by code must be between many to write andd nothing short task to put tabel maximum to wall, short and if 1 make all
 adaptive all/O posibility short like sperm and then human difficcult but need look on our codde env vagina symbol is 2/2 symbol or maybe 2/1 symbol in O becouse 1 is balanced and in 2/1 1 must be balanced, so maybe woman 2.
-alos look that O loves symbols also O is stick move, maybe we need just give for she env where she will be moves in word of computers will revviev and write numbers and this env maybe 2/vagina must make unbroken AI what will be before vagina beta)) wiill be production, pentagram light and love jokes.
+alos look that O loves symbols also O is stick move, maybe we need just give for she env where she will be moves in word of computers will revviev and write numbers and this env maybe 2/vagina must make unbroken AI what will be before vagina beta)) wiill be production, pentagram light and love jokes, you must understoodd that nature is have unbroken secure.
 
 Good luck, and dont forget to click "Star" button!
