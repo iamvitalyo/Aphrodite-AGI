@@ -698,4 +698,7 @@ maybe need try so circle automation you told he give for example give 1 he retur
 
 look also in phhiscs for example dot divide if 4 will 2, if 5 dots you drop can be 2 and 3 and you choose or 3 or 2, stick by method of move can be +1 move but i also think that this O cycle move on revert half can be i 3 = 6 or 2 = 4, 3 triangel like maybe-yes/no if number is balanced for example 2 yes or maybe balanced number if 1 then 3 can be balncced number another dont know make experiment but revert of move we know cross and he like decenralize in 4 sides 1 number then 5 again cycle. also look that 1 have word time/materiia so there you must record data maybe when yyou drop on 5 balss 1 we be decentralized recording you write both 2 and 3  
 
+
+also look for example on stick is move and second balanced 2 is vagina is like make move forever and lookk on 2 and cycle maybe need make 2 cycles inthis syymbol if you will use him, the same with triangel and 5.
+
 Good luck, and dont forget to click "Star" button!
