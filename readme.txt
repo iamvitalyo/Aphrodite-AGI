@@ -704,5 +704,7 @@ also look for example on stick is move and second balanced 2 is vagina is like m
 if you have resource/computers you can develop from 15 symbols/numbers not so many variations but, so you write class triangel and use in this all variations and run and wait for example 1 day, like God development. if youu dont know 2 is stick or vagina, there maybe will be anothers levels of variations. 
 
 also look on upper how dot make O and investigate cross in O + something you know, so goal to uunderstood method of movvement in O when we will understant we will understandd method of movement of Pentagram of mind just what logic of movement.
- 
+
+if 1 undividible and memory is 1 word imagine 1 big number and how she plays with him how she start from small, and any number has word  
+
 Good luck, and dont forget to click "Star" button!
