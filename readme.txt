@@ -710,6 +710,6 @@ if 1 undividible and memory is 1 word imagine 1 big number and how she plays wit
 if also maybe like ccircle told stupid but not stupid, so we chhose what is stick give or get, ii choose give, then look on stick width 1 and cycle with one coridor so how she will get if we just will write shes numbers, she get from all like we get from all she get from O when O symbol of logic/balance she-s memory is shees self word like for us our universre, its explaine why she is unchakebel, we can not control shes head and send information she must self develop O world then when shes world will be smart she will maybe contact with us, she take things from all from self O, just maybe.  
 
 or maybe just simpe logic output data 1 to Pentagram/35241 will be 35241 so 2 => 610482... then this 6 is some symbol, maybe something another and need use something like 2/1, 3/1, then we know that 2/1 is stick symbol .... 
-maybe need to look this 35241 like on % where percent system full=5% not 100% yes i think is %system
+maybe need to look this 35241 like on % where percent system full=5% not 100% yes i think is %system and we always think by maybe annd O 50/50 maybe
 
 Good luck, and dont forget to click "Star" button!
