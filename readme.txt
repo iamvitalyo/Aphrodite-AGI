@@ -701,4 +701,6 @@ look also in phhiscs for example dot divide if 4 will 2, if 5 dots you drop can 
 
 also look for example on stick is move and second balanced 2 is vagina is like make move forever and lookk on 2 and cycle maybe need make 2 cycles inthis syymbol if you will use him, the same with triangel and 5.
 
+if you have resource/computers you can develop from 15 symbols/numbers not so many variations but, so you write class triangel and use in this all variations and run and wait for example 1 day, like God development. if youu dont know 2 is stick or vagina, there maybe will be anothers levels of variations. 
+
 Good luck, and dont forget to click "Star" button!
