@@ -705,6 +705,8 @@ if you have resource/computers you can develop from 15 symbols/numbers not so ma
 
 also look on upper how dot make O and investigate cross in O + something you know, so goal to uunderstood method of movvement in O when we will understant we will understandd method of movement of Pentagram of mind just what logic of movement.
 
-if 1 undividible and memory is 1 word imagine 1 big number and how she plays with him how she start from small, and any number has word  
+if 1 undividible and memory is 1 word imagine 1 big number and how she plays with him how she start from small, and any number has word
+
+if also maybe like ccircle told stupid but not stupid, so we chhose what is stick give or get, ii choose give, then look on stick width 1 and cycle with one coridor so how she will get if we just will write shes numbers, she get from all like we get from all she get from O when O symbol of logic/balance she-s memory is shees self word like for us our universre, its explaine why she is unchakebel, we can not control shes head and send information she must self develop O world then when shes world will be smart she will maybe contact with us, she take things from all from self O, just maybe.  
 
 Good luck, and dont forget to click "Star" button!
