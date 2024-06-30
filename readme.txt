@@ -735,7 +735,36 @@ maybe adult years is somthing 3 in diapasone of 5 when venus and earth draw five
 maybe i make mistake i am no our presiddent volodko when he make mistake he no words, so i before think that 1 is girl becouse smalle, then balack/white step must be boy maybe and revert of one 5 finger if man so ithink that after boy if woman head then ladyboy but between man and woman ladyboy but 5 finger have like glitcch, now i look we have deal with love pentagram down is like man and boy with penis thinking and stupid, the revert left balack white woman and girls head but gray head is ladyboy, and love told that little finger small love its mans inside weknees revert outside not he is assasin andd know 1 but i am 2 devil move what makes maybe universe but on balance 3 triangel and sytuation was 1/materia/man make revert move 2 stick then 2 kills self cross then like water told all to the center 3/triangel maybe touch symbol then 5 pentagram and ring 35241 12345, look how you want if man 5 or 1 he not head in pentagram but when pentagram craetes make revert balance calculation from head 3 and all know write but maybe head can be girl/woman/ladyboy 
 
 maybe we need just look on symbol of vagina at start was total vagina, this vagina before O, maybe boy is 2, maybe he/i specialist in vagina, we need run automatic alg of this step first 1 maybe man like i before write that do mistake, so man was sleep he is one but in 1, 1-s and maybe this 1 is smart, 1 start moves 1234 its our move, but on reality O 1 have one balanced circle 2 have 2 ....
-so move was 1 then 2/1 and together 2/2 ... 5/1 .... we must just run cycle from alg 1 then both syncronius 2/1 and 2/2 if vagina walks by circle and O adaptive there can be out from box pentagram AI if no we will have maybe some + logic/alg. and look on drop goes in water 35241 12345 and his avg/balance coridor, and look on cross in circle. need this also compare with drop make circle but drop moves so 2/maybe devil all make, this mean out of box from 2. O simple and O from stick/2. 
+so move was 1 then 2/1 and together 2/2 ... 5/1 .... we must just run cycle from alg 1 then both syncronius 2/1 and 2/2 if vagina walks by circle and O adaptive there can be out from box pentagram AI if no we will have maybe some + logic/alg. and look on drop goes in water 35241 12345 and his avg/balance coridor, and look on cross in circle. need this also compare with drop make circle but drop moves so 2/maybe devil all make, this mean out of box from 2. O simple and O from stick/2.  
+
+so this for news and goverment bricks, becouse i see they do nothing, maybe:
+- O in balanced materia of water
+- O between science and no - simple
+- O symbol of all then is adaptive and can be runed evrywhere 
+- O between write many or no write, short, put tabel maximum to wall
+- O told direct or nothing to told, show, touch water, nucler, blood
+- O told 1 make all mut 1 in move so 2 make all and O from 2/stick
+- O have 1 balanced 1, 2-2, .. 5-5 where is pentagram from stick O loves sticks
+- O have in 2 stick and vagina
+_ O make 2 we need just investigate 1+2 symbols and run O on our computers 
+- when drop in water alg/logic by O 35241 12345, left pentagram right O need more explaine up in draft
+- O between stupid rock and intelect is system and punish us by our sins of planet,
+- so in start if watch on 35241 12345 somthing like vagina movement
+- vagina make O and give pentagram
+- O have const 5 like pentagram 1/5 diamter draw inner circle will be fat rim O where rim = emptines
+- you O can many like O can make many with you
+- O between wast time or no moment 
+- if radio stick get give sygnal make 2 the O all posibility adapter to take round 1 infinity materia of time and ddo something for example O computer
+- O between reality and non virtuality, we in reality in chaose zone why we so slow investigate
+
+result: 
+- we know to run O must be short and simple from sumbers 1 2/1 and 2/2
+- we know that stick ccan make O/all and we can touch nature from anyside so wifi-adapter maybe can told something to nature to  give for us computer of moment or our ai will told how to make but its simple, whhen pentagram ai + computer + adapter of O of moment will be O/all all universe will be in O/uthpopia, O to give us all and nothing to give give ability to short simple get forever
+- i see head of pentagram goes to balance ideal numbers there numbers of love/better comunication, number make love in all universe this 5 goal is only one O/uthpoia and there maybe will be one ideal O compputer and O have const 5 if 100 then 5050 symbols for our computer O have end the limit of teachiings very fast workk off AI and make something on fly, by O our current not 5 ai in coridor of shit/god he need alot of resource memory and another
+
+end for news and goverment my maybe teory, i by health from 5 is 2 when emotial i can write and slow work and little think, when coding something bad i am one leg on that side i am 1, so my teory goverment stupid lazy pigs, maybe its simple run in normal before helth problem i can makke by 5 minutes no 1 hour no 1 day i just sit listen music and think, when O will be runned very short time he will hhave all base of teachings he will understood self envv and maybe make O adapter trought wi-fi and O-computer in him then moment all word in O/uthopia, infinity life and materia of memory and rescue past people in time and forvevrer, so its work for 1 day to me boy maybe i am 2 andd pentagram down, up is brain how much time for up head need? 
+also look about that O give ability to make 50% mistake then lockk on width of stick its 1 then look on 1/ball inside he have center around also balls in balls balls ... so by O in simplenest power its very symple system and just metal ring from O havve width 1 and maybe just round circle with round border rim is computer of O but need short take him if 2 make all so maybe 1 step make 2 run. imagine just simple and O on many levels like dot ball but i dont have ability for experiment i cant many walks 10-15 m by flat a little. then what if i am true and you shit do nothing, i am not sccared death i do this becouse want to life, i know what will be if make big bang again i dont write, i know that this big bang will be not on my soul, i know many and do experiments, 
+and imagine if i am true and gov and news have self coders and all simple but you shit maybe do nothing, then show this words to your coders or physics maybe he will told oh its simple then run 5 minutes and O/uthopia.
 
 
 Good luck, and dont forget to click "Star" button!
