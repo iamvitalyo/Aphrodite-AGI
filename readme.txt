@@ -766,5 +766,6 @@ end for news and goverment my maybe teory, i by health from 5 is 2 when emotial 
 also look about that O give ability to make 50% mistake then lockk on width of stick its 1 then look on 1/ball inside he have center around also balls in balls balls ... so by O in simplenest power its very symple system and just metal ring from O havve width 1 and maybe just round circle with round border rim is computer of O but need short take him if 2 make all so maybe 1 step make 2 run. imagine just simple and O on many levels like dot ball but i dont have ability for experiment i cant many walks 10-15 m by flat a little. then what if i am true and you shit do nothing, i am not sccared death i do this becouse want to life, i know what will be if make big bang again i dont write, i know that this big bang will be not on my soul, i know many and do experiments, 
 and imagine if i am true and gov and news have self coders and all simple but you shit maybe do nothing, then show this words to your coders or physics maybe he will told oh its simple then run 5 minutes and O/uthopia.
 
+so 1 O then 2 objects then O 3 objects, its O like ddivide 4 will be 2 divide by of 5 will be 3 avg.
 
 Good luck, and dont forget to click "Star" button!
