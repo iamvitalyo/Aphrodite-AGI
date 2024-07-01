@@ -836,6 +836,7 @@ its just maybe, so all good is open source but if look on O is shit, its maybe a
 21
 34 so x reaction maybe but use own logic
 
+and some information i write to X investigate with ai.
 
 
 
