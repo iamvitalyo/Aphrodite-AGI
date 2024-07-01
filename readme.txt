@@ -829,7 +829,7 @@ up of vaginna 1 up bottom 2 form not movve to move
 then we go Cunnilingus maybe ii not specialist
 12
 1 + 2 = 3 + 1 = 4 + 2 = 6 + 1 = 7 + 2 
-and maybe fo this all also use x method what up described or another some O method or we can make binary from this numers and run like binary ccode. 
+and maybe fo this all also use x method what up described or another some O method or we can make binary from this numers and run like binary ccode becouse O is stick binary. 
 
 
 
