@@ -791,4 +791,13 @@ O is shape of one unity so its like infinity fly of 1, so maybe we need do somet
 
 1+1=2 2+1=3 3+1=4 
 
+so 1=1 move 1 from left we have o = o so we have o o o then if unity O this mean our 1 is our 0 in systems, 1 is 2
+then maybe need to play game of revert or what if this all binary code of O app where willbe pentagram AI.
+
+01
+10
+
+
+
+
 Good luck, and dont forget to click "Star" button!
