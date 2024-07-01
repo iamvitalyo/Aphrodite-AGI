@@ -778,8 +778,16 @@ its like before was
 2/2
 2/2
 
-its maybe 2 croses or cross from 4 sticks
+its maybe 2 croses or cross from 4 stick
 
+O is shape of one unity so its like infinity fly of 1, so maybe we need do something like this:
+
+1
+1/2
+2/2
+1/3
+2/3
+3/3
 
 
 Good luck, and dont forget to click "Star" button!
