@@ -774,6 +774,12 @@ she explains how from 1 we make 2, and look on height in bottom she maybe start 
 2/1
 2/2
 
+its like before was 
+2/2
+2/2
+
+its maybe 2 croses or cross from 4 sticks
+
 
 
 Good luck, and dont forget to click "Star" button!
