@@ -796,6 +796,10 @@ then maybe need to play game of revert or what if this all binary code of O app 
 
 01
 10
+12
+21
+24
+42
 
 
 
