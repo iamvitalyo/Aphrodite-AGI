@@ -789,5 +789,6 @@ O is shape of one unity so its like infinity fly of 1, so maybe we need do somet
 2/3
 3/3
 
+1+1=2 2+1=3 3+1=4 
 
 Good luck, and dont forget to click "Star" button!
