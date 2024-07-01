@@ -823,7 +823,16 @@ our use without merge
 its look stupid but review your constitution to not draw O write one word what will make for people Uthopia, "balance",
 and on balance O look head of 5 there maybe will some miracel
 
-but a
+alos vagina methods so 
+for example i will use 1 like 1 when needd look that 0 is one now 1 just 1 like 0 
+up of vaginna 1 up bottom 2 form not movve to move
+then we go Cunnilingus maybe ii not specialist
+12
+1 + 2 = 3 + 1 = 4 + 2 = 6 + 1 = 7 + 2 
+and maybe fo this all also use x method what up described or another some O method. 
+
+
+
 
 
 
