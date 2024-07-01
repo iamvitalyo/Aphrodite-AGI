@@ -768,5 +768,6 @@ and imagine if i am true and gov and news have self coders and all simple but yo
 
 so 1 O then 2 objects then O 3 objects, its O like ddivide 4 will be 2 divide by of 5 will be 3 avg.
 look also on drop is 2 not 1
+she explains how from 1 we make 2, and look on height in bottom she maybe start make 2/1 then 2/2 then O - 3/1 3/2...
 
 Good luck, and dont forget to click "Star" button!
