@@ -838,6 +838,8 @@ its just maybe, so all good is open source but if look on O is shit, its maybe a
 
 and some information i write to X investigate with ai.
 
+so alos look that O told about decentraliztion but have center, the same drop of water in fly have like 1 up but if draw shape goes from 1 then like 1 ccycle and back 2, there also was balance before O, between O and nothing 1.
+
 
 
 
