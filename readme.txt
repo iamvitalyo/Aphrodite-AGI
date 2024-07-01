@@ -767,5 +767,6 @@ also look about that O give ability to make 50% mistake then lockk on width of s
 and imagine if i am true and gov and news have self coders and all simple but you shit maybe do nothing, then show this words to your coders or physics maybe he will told oh its simple then run 5 minutes and O/uthopia.
 
 so 1 O then 2 objects then O 3 objects, its O like ddivide 4 will be 2 divide by of 5 will be 3 avg.
+look also on drop is 2 not 1
 
 Good luck, and dont forget to click "Star" button!
