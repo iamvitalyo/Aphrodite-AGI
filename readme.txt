@@ -848,10 +848,8 @@ also if maybe we have = and + we make from + - and have - and then we look divid
 
 and look on up/down/left/right then loook on +-=*/ maybe we can descriibe this all using cross in O and 12435 and 35241 what drop makes and drop, andd look on vagina symbol alos she was before O, this all maybe use your brains, with this we can start O there in start Pentagram AI and mirror O maybe like connected memory becouse by no memory and infinity mamory by o time this mirror O will be emulation of time database.
 
-
-
-
-
+so before i write maybe and use self logic/braine, its also maybe but ccan help make your team more powerfull, like assasins what kills all what dark, and we need kill no teachings, imagine you dont know about O you dont see you blind in darkness, imagine you in the ddarkness and ddrinked, what you do on intuitive level of automation you try make balance for self, then play 
+word "balannce" => draw ddot make she more balanced makke O then make more balanced O draw by 1/5 of diameter inner circle and rim == emptines of O, then maybe i am wrong or no balance 1 nomone makke revert move 2 then 2 before i write make revert of self cross 4 then i write 3 and 5 intuitive but O have center but love decentralization, and we must look on this batell of 1 and 0, look also on how make ffrom stick 2 - 3 trinagle is like growing we darw stick then look balanced point and try to make more balanced 3 from this 3 point you have triangel. balance is also/love/intuition by O
 
 
 Good luck, and dont forget to click "Star" button!
