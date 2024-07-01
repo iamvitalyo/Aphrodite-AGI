@@ -796,10 +796,27 @@ then maybe need to play game of revert or what if this all binary code of O app 
 
 01
 10
+we use x
+12
+maybe here we also can merge 1+2=3, 13
+21 
+merge 23
+
+24
+42
+
+our use without merge
+01
+10
 12
 21
 24
 42
+
+its look stupid but review your constitution to not draw O write one word what will make for people Uthopia, "balance",
+and on balance O look head of 5 there maybe will some miracel
+
+but a
 
 
 
